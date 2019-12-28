@@ -47,6 +47,15 @@ O CHEGA a Dezembro de 2019 retirou do seu site o programa eleitoral para altera�
 * `CHEGA_20191218.md` - Versão de Dezembro de 2019 convertida para markdown **com as seguintes alterações**:
   - remoção ou adição de espaços em branco ou breakline;
   - remoção ou adição de estilos tipo negrito ou itálico.
+  
+**Comparar programas**
+
+* `CHEGA_201909.md` vs `CHEGA_20191218_original.md` [aqui](https://github.com/Politica-Para-Todos/manifestos_archive/pull/1/files).
+* `CHEGA_201909.md` vs `CHEGA_20191218.md` [aqui](https://github.com/Politica-Para-Todos/manifestos_archive/pull/2/files).
+
+**Discussão**
+
+* [Loomio](https://www.loomio.org/d/sN2jW8Pg/altera-o-programa-eleitoral-chega)
 
 ## Conversa
 
