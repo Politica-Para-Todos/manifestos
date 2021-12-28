@@ -1,4 +1,4 @@
-# Programas eleitorais das legislativas de 2019
+# Programas Eleitorais - Legislativas Portugal 2019
 
 Um repositório dos programas eleitorais para as eleições legislativas de 2019, em versão Markdown para serem utilizados na plataforma www.politicaparatodos.pt.
 
@@ -38,7 +38,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 
 ## Comentários
 
-##### Alteração programa eleitoral do CHEGA
+**Alteração programa eleitoral do CHEGA**
 
 O CHEGA a Dezembro de 2019 retirou do seu site o programa eleitoral para alterações estéticas e cerca de uma semana mais tarde voltou a disponibilizá-lo. Assim, decidiu-se converter essa nova versão do programa eleitoral:
 
