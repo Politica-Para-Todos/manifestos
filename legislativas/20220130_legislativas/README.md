@@ -29,7 +29,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Partido Trabalhista Português  |  |    |
 | PESSOAS - ANIMAIS - NATUREZA |  |  |
 | Reagir Incluir Reciclar |  |  |
-| Volt Portugal | [Dez 2021](https://assets.volteuropa.org/2021-12/Volt_Portugal-Programa_Politico.pdf) | |
+| Volt Portugal | [Dez 2021](https://assets.volteuropa.org/2021-12/Volt_Portugal-Programa_Politico.pdf) | Francisco Frutuoso | Não terminado
 
 ## Conversa
 
