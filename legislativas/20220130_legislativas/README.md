@@ -12,7 +12,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | ALTERNATIVA DEMOCRÁTICA NACIONAL | | |
 | Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/wp-content/uploads/2021/12/Programa-a-cores-com-pa%CC%81gina-dupla.pdf) | João Saro | Não terminado
 | CDS - Partido Popular |  |  |
-| CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) | Miguel Gomes | N
+| CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) | Miguel Gomes | Nao terminado
 | Ergue-te | | |
 | Iniciativa Liberal |  |  |
 | Juntos pelo Povo |  | |
