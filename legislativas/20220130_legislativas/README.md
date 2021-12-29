@@ -12,11 +12,11 @@ A disponibilização dos programas num formato standard permitirá também que s
 | ALTERNATIVA DEMOCRÁTICA NACIONAL | | |
 | Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/wp-content/uploads/2021/12/Programa-a-cores-com-pa%CC%81gina-dupla.pdf) |  |
 | CDS - Partido Popular |  |  |
-| CHEGA |  |  |
+| CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) |  |
 | Ergue-te | | |
 | Iniciativa Liberal |  |  |
 | Juntos pelo Povo |  | |
-| LIVRE |  |  |
+| LIVRE | [Dez 2021](https://partidolivre.pt/wp-content/uploads/2021/12/Programa_Eleitoral_2022.pdf) |  |
 | Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) |  |
 | Nós, Cidadãos! |  |  |
 | Partido Comunista dos Trabalhadores Portugueses |  |  |
