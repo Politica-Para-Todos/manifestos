@@ -6,11 +6,11 @@ A disponibilização dos programas num formato standard permitirá também que s
 
 ## Partidos / Coligaçōes que concorreram:
 
-| Nome do Partido| Programa | Responsável |
-|---|---|---|
+| Nome do Partido| Programa | Responsável | Estado |
+|---|---|---| --- |
 | Aliança | | |
 | ALTERNATIVA DEMOCRÁTICA NACIONAL | | |
-| Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/wp-content/uploads/2021/12/Programa-a-cores-com-pa%CC%81gina-dupla.pdf) |  |
+| Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/wp-content/uploads/2021/12/Programa-a-cores-com-pa%CC%81gina-dupla.pdf) | João Saro | Não terminado
 | CDS - Partido Popular |  |  |
 | CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) |  |
 | Ergue-te | | |
