@@ -17,7 +17,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Iniciativa Liberal |  |  |
 | Juntos pelo Povo |  | |
 | LIVRE | [Dez 2021](https://partidolivre.pt/wp-content/uploads/2021/12/Programa_Eleitoral_2022.pdf) |  |
-| Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) |  |
+| Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) | Miguel Gomes | Não terminado
 | Nós, Cidadãos! |  |  |
 | Partido Comunista dos Trabalhadores Portugueses |  |  |
 | Partido Comunista Português | | |
