@@ -17,7 +17,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Iniciativa Liberal |  |  |
 | Juntos pelo Povo |  | |
 | LIVRE |  |  |
-| Movimento Alternativa Socialista | |  |
+| Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) |  |
 | Nós, Cidadãos! |  |  |
 | Partido Comunista dos Trabalhadores Portugueses |  |  |
 | Partido Comunista Português | | |
