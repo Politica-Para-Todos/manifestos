@@ -8,28 +8,28 @@ A disponibilização dos programas num formato standard permitirá também que s
 
 | Nome do Partido| Programa | Responsável | Estado |
 |---|---|---| --- |
-| Aliança | | |
-| ALTERNATIVA DEMOCRÁTICA NACIONAL | | |
-| Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/wp-content/uploads/2021/12/Programa-a-cores-com-pa%CC%81gina-dupla.pdf) | João Saro | Não terminado
-| CDS - Partido Popular |  |  |
-| CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) | Miguel Gomes | Terminado
-| Ergue-te | | |
-| Iniciativa Liberal |  |  |
-| Juntos pelo Povo |  | |
-| LIVRE | [Dez 2021](https://partidolivre.pt/wp-content/uploads/2021/12/Programa_Eleitoral_2022.pdf) | Tiago Sousa | Não terminado
-| Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) | Miguel Gomes | Terminado
-| Nós, Cidadãos! |  |  |
-| Partido Comunista dos Trabalhadores Portugueses |  |  |
-| Partido Comunista Português | | |
-| Partido da Terra  |  |  |
-| Partido Popular Monárquico | | |
-| Partido Ecologista "Os Verdes" | |  |
-| Partido Social Democrata |  |  |
-| Partido Socialista | |  |
-| Partido Trabalhista Português  |  |    |
-| PESSOAS - ANIMAIS - NATUREZA |  |  |
-| Reagir Incluir Reciclar |  |  |
-| Volt Portugal | [Dez 2021](https://assets.volteuropa.org/2021-12/Volt_Portugal-Programa_Politico.pdf) | Francisco Frutuoso | Não terminado
+| Aliança | | | |
+| ALTERNATIVA DEMOCRÁTICA NACIONAL | | | |
+| Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/wp-content/uploads/2021/12/Programa-a-cores-com-pa%CC%81gina-dupla.pdf) | João Saro | Não terminado |
+| CDS - Partido Popular |  |  | |
+| CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) | Miguel Gomes | Terminado |
+| Ergue-te | | | |
+| Iniciativa Liberal |  |  | |
+| Juntos pelo Povo |  | | |
+| LIVRE | [Dez 2021](https://partidolivre.pt/wp-content/uploads/2021/12/Programa_Eleitoral_2022.pdf) | Tiago Sousa | Não terminado |
+| Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) | Miguel Gomes | Terminado |
+| Nós, Cidadãos! |  |  | |
+| Partido Comunista dos Trabalhadores Portugueses |  |  | |
+| Partido Comunista Português | | | |
+| Partido da Terra  |  |  | |
+| Partido Popular Monárquico | | | |
+| Partido Ecologista "Os Verdes" | |  | |
+| Partido Social Democrata |  |  | |
+| Partido Socialista | |  | |
+| Partido Trabalhista Português  |  |    | |
+| PESSOAS - ANIMAIS - NATUREZA |  |  | |
+| Reagir Incluir Reciclar |  |  | |
+| Volt Portugal | [Dez 2021](https://assets.volteuropa.org/2021-12/Volt_Portugal-Programa_Politico.pdf) | Francisco Frutuoso | Não terminado |
 
 ## Conversa
 
