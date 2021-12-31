@@ -10,7 +10,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 |---|---|---| --- |
 | Aliança | | | |
 | ALTERNATIVA DEMOCRÁTICA NACIONAL | [Dez 2021](https://adn.com.pt/programa-eleitoral/) | Miguel Gomes | Terminado |
-| Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/wp-content/uploads/2021/12/Programa-a-cores-com-pa%CC%81gina-dupla.pdf) | João Saro | Não terminado |
+| Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/wp-content/uploads/2021/12/Programa-a-cores-com-pa%CC%81gina-dupla.pdf) | João Saro | Terminado |
 | CDS - Partido Popular |  |  | |
 | CDU - Coligação Democráticas Unitária | [Jan. 2022](https://www.cdu.pt/2022/compromisso-eleitoral-do-pcp) | Miguel Gomes| Nao terminado |
 | CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) | Miguel Gomes | Terminado |
