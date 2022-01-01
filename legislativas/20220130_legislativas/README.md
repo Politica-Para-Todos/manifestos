@@ -16,7 +16,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Ergue-te | | | |
 | Iniciativa Liberal |  |  | |
 | Juntos pelo Povo |  | | |
-| LIVRE | [Dez 2021](https://partidolivre.pt/wp-content/uploads/2021/12/Programa_Eleitoral_2022.pdf) | Tiago Sousa | Não terminado |
+| LIVRE | [Dez 2021](https://partidolivre.pt/wp-content/uploads/2021/12/Programa_Eleitoral_2022.pdf) | Tiago Sousa | Terminado |
 | Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) | Miguel Gomes | Terminado |
 | Nós, Cidadãos! |  |  | |
 | Partido Comunista dos Trabalhadores Portugueses |  |  | |
