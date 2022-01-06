@@ -24,7 +24,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Partido da Terra  |  |  | |
 | Partido Popular Monárquico | | | |
 | Partido Social Democrata |  |  | |
-| Partido Socialista | |  | |
+| Partido Socialista |[Linhas Gerais](https://ps.pt/wp-content/uploads/2021/09/Linhas-Gerais-do-Programa-Eleitoral-2022_5jan.pdf) [12 Prioridades](https://ps.pt/wp-content/uploads/2021/09/12-prioridades-para-os-proximos-4-anos_5jan-1.pdf) |  | |
 | Partido Trabalhista Português  |  |    | |
 | PESSOAS - ANIMAIS - NATUREZA |  |  | |
 | Reagir Incluir Reciclar |  |  | |
