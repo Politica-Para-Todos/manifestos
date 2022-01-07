@@ -27,7 +27,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Partido Socialista | |  | |
 | Partido Trabalhista Português  |  |    | |
 | PESSOAS - ANIMAIS - NATUREZA |  |  | |
-| Reagir Incluir Reciclar |  |  | |
+| Reagir Incluir Reciclar | [Jan 2022](http://partido-rir.pt/wp-content/uploads/2022/01/Rir_Programa_eleicoes22.pdf) | Francisco Frutuoso | Terminado |
 | Volt Portugal | [Dez 2021](https://assets.volteuropa.org/2021-12/Volt_Portugal-Programa_Politico.pdf) | Francisco Frutuoso | Terminado |
 
 ## Conversa
