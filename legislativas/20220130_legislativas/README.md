@@ -23,7 +23,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Partido Comunista dos Trabalhadores Portugueses |  |  | |
 | Partido da Terra  |  |  | |
 | Partido Popular Monárquico | | | |
-| Partido Social Democrata |  |  | |
+| Partido Social Democrata |  | Nuno Carneiro  | |
 | Partido Socialista | |  | |
 | Partido Trabalhista Português  |  |    | |
 | PESSOAS - ANIMAIS - NATUREZA |  |  | |
