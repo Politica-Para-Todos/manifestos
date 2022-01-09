@@ -23,7 +23,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Partido Comunista dos Trabalhadores Portugueses |  |  | |
 | Partido da Terra  |  |  | |
 | Partido Popular Monárquico | | | |
-| Partido Social Democrata |  |  | |
+| Partido Social Democrata | [Jan 2022](https://www.psd.pt/sites/default/files/2022-01/PSD%20Programa%20Eleitoral%202022%20v4.pdf) | Henrique Diogo Silva | Não terminado |
 | Partido Socialista | [Jan 2022](https://programa.antoniocosta2022.pt/programa/Programa-Eleitoral-PS2022.pdf) | João Saro | Não terminado |
 | Partido Trabalhista Português  |  |    | |
 | PESSOAS - ANIMAIS - NATUREZA |  |  | |
