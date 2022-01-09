@@ -24,7 +24,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Partido da Terra  |  |  | |
 | Partido Popular Monárquico | | | |
 | Partido Social Democrata |  |  | |
-| Partido Socialista | [Jan 2022](https://programa.antoniocosta2022.pt/programa/Programa-Eleitoral-PS2022.pdf) | João Saro | Não terminado |
+| Partido Socialista | [Jan 2022](https://programa.antoniocosta2022.pt/programa/Programa-Eleitoral-PS2022.pdf) | João Saro | Terminado |
 | Partido Trabalhista Português  |  |    | |
 | PESSOAS - ANIMAIS - NATUREZA |  |  | |
 | Reagir Incluir Reciclar |  |  | |
