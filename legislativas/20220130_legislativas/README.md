@@ -14,14 +14,14 @@ A disponibilização dos programas num formato standard permitirá também que s
 | CDS - Partido Popular |  [Dez 2021](https://b0aeab40-c635-4353-910b-6aa274f66d8c.filesusr.com/ugd/f15fb0_85a52867a3a143609c0f22c368b00fb4.pdf)  | Miguel Gomes | Nao terminado |
 | CDU - Coligação Democráticas Unitária | [Jan. 2022](https://www.cdu.pt/2022/compromisso-eleitoral-do-pcp) | Miguel Gomes| Terminado |
 | CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) | Miguel Gomes | Terminado |
-| Ergue-te | | | |
+| Ergue-te | [Jan 2022](http://www.partidoergue-te.pt/wp-content/uploads/2022/01/Programa-eleitoral-Ergue-te-Legislativas-2022.pdf) | | |
 | Iniciativa Liberal |  |  | |
 | Juntos pelo Povo |  | | |
 | LIVRE | [Dez 2021](https://partidolivre.pt/wp-content/uploads/2021/12/Programa_Eleitoral_2022.pdf) | Tiago Sousa | Terminado |
 | Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) | Miguel Gomes | Terminado |
 | Nós, Cidadãos! |  |  | |
 | Partido Comunista dos Trabalhadores Portugueses |  |  | |
-| Partido da Terra  |  |  | |
+| Partido da Terra  | [Jan 2022](https://mpt.pt/wp-content/uploads/2022/01/MANIFESTO.ELEITORAL.PARTIDO.DA_.TERRA2022.pdf) |  | |
 | Partido Popular Monárquico | | | |
 | Partido Social Democrata |  |  | |
 | Partido Socialista | [Jan 2022](https://programa.antoniocosta2022.pt/programa/Programa-Eleitoral-PS2022.pdf) | João Saro | Terminado |
