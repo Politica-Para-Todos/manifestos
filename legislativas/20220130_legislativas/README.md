@@ -10,12 +10,12 @@ A disponibilização dos programas num formato standard permitirá também que s
 |---|---|---| --- |
 | Aliança | | | |
 | ALTERNATIVA DEMOCRÁTICA NACIONAL | [Dez 2021](https://adn.com.pt/programa-eleitoral/) | Miguel Gomes | Terminado |
-| Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/wp-content/uploads/2021/12/Programa-a-cores-com-pa%CC%81gina-dupla.pdf) | João Saro | Terminado |
+| Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/indice/) | João Saro | Terminado |
 | CDS - Partido Popular |  [Dez 2021](https://b0aeab40-c635-4353-910b-6aa274f66d8c.filesusr.com/ugd/f15fb0_85a52867a3a143609c0f22c368b00fb4.pdf)  | Miguel Gomes | Nao terminado |
 | CDU - Coligação Democráticas Unitária | [Jan. 2022](https://www.cdu.pt/2022/compromisso-eleitoral-do-pcp) | Miguel Gomes| Terminado |
 | CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) | Miguel Gomes | Terminado |
 | Ergue-te | [Jan 2022](http://www.partidoergue-te.pt/wp-content/uploads/2022/01/Programa-eleitoral-Ergue-te-Legislativas-2022.pdf) | | |
-| Iniciativa Liberal |  |  | |
+| Iniciativa Liberal | [Jan 2021](https://iniciativaliberal.pt/wp-content/uploads/2022/01/Iniciativa-Liberal-Programa-Eleitoral-2022.pdf)  |  | |
 | Juntos pelo Povo |  | | |
 | LIVRE | [Dez 2021](https://partidolivre.pt/wp-content/uploads/2021/12/Programa_Eleitoral_2022.pdf) | Tiago Sousa | Terminado |
 | Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) | Miguel Gomes | Terminado |
