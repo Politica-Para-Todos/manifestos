@@ -11,7 +11,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Aliança | | | |
 | ALTERNATIVA DEMOCRÁTICA NACIONAL | [Dez 2021](https://adn.com.pt/programa-eleitoral/) | Miguel Gomes | Terminado |
 | Bloco de Esquerda | [Dez 2021](https://programa2022.bloco.org/indice/) | João Saro | Terminado |
-| CDS - Partido Popular |  |  | |
+| CDS - Partido Popular |  [Dez 2021](https://b0aeab40-c635-4353-910b-6aa274f66d8c.filesusr.com/ugd/f15fb0_85a52867a3a143609c0f22c368b00fb4.pdf)  | Miguel Gomes | Nao terminado |
 | CDU - Coligação Democráticas Unitária | [Jan. 2022](https://www.cdu.pt/2022/compromisso-eleitoral-do-pcp) | Miguel Gomes| Terminado |
 | CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) | Miguel Gomes | Terminado |
 | Ergue-te | | | |
@@ -24,10 +24,10 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Partido da Terra  |  |  | |
 | Partido Popular Monárquico | | | |
 | Partido Social Democrata |  |  | |
-| Partido Socialista | |  | |
+| Partido Socialista | [Jan 2022](https://programa.antoniocosta2022.pt/programa/Programa-Eleitoral-PS2022.pdf) | João Saro | Terminado |
 | Partido Trabalhista Português  |  |    | |
 | PESSOAS - ANIMAIS - NATUREZA |  |  | |
-| Reagir Incluir Reciclar |  |  | |
+| Reagir Incluir Reciclar | [Jan 2022](http://partido-rir.pt/wp-content/uploads/2022/01/Rir_Programa_eleicoes22.pdf) | Francisco Frutuoso | Terminado |
 | Volt Portugal | [Dez 2021](https://assets.volteuropa.org/2021-12/Volt_Portugal-Programa_Politico.pdf) | Francisco Frutuoso | Terminado |
 
 ## Conversa
