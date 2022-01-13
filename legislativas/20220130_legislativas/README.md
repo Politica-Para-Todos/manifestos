@@ -23,7 +23,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Partido Comunista dos Trabalhadores Portugueses |  |  | |
 | Partido da Terra  | [Jan 2022](https://mpt.pt/wp-content/uploads/2022/01/MANIFESTO.ELEITORAL.PARTIDO.DA_.TERRA2022.pdf) |  | |
 | Partido Popular Monárquico | | | |
-| Partido Social Democrata |  |  | |
+| Partido Social Democrata | [Jan 2022](https://www.psd.pt/sites/default/files/2022-01/PSD%20Programa%20Eleitoral%202022%20v4.pdf) | Henrique Diogo Silva | Terminado |
 | Partido Socialista | [Jan 2022](https://programa.antoniocosta2022.pt/programa/Programa-Eleitoral-PS2022.pdf) | João Saro | Terminado |
 | Partido Trabalhista Português  |  |    | |
 | PESSOAS - ANIMAIS - NATUREZA |  |  | |
