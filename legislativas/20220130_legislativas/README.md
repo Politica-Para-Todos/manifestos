@@ -26,7 +26,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Partido Social Democrata | [Jan 2022](https://www.psd.pt/sites/default/files/2022-01/PSD%20Programa%20Eleitoral%202022%20v4.pdf) | Henrique Diogo Silva | Terminado |
 | Partido Socialista | [Jan 2022](https://programa.antoniocosta2022.pt/programa/Programa-Eleitoral-PS2022.pdf) | João Saro | Terminado |
 | Partido Trabalhista Português  |  |    | |
-| PESSOAS - ANIMAIS - NATUREZA |  |  | |
+| PESSOAS - ANIMAIS - NATUREZA | [Jan 2022]( https://www.pan.com.pt/eleicoes/eleicoes-legislativas-2022/programa-eleitoral-pan/) | Nuno Carneiro | Nao terminado |
 | Reagir Incluir Reciclar | [Jan 2022](http://partido-rir.pt/wp-content/uploads/2022/01/Rir_Programa_eleicoes22.pdf) | Francisco Frutuoso | Terminado |
 | Volt Portugal | [Dez 2021](https://assets.volteuropa.org/2021-12/Volt_Portugal-Programa_Politico.pdf) | Francisco Frutuoso | Terminado |
 
