@@ -21,7 +21,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) | Miguel Gomes | Terminado |
 | Nós, Cidadãos! |  |  | |
 | Partido Comunista dos Trabalhadores Portugueses |  |  | |
-| Partido da Terra  | [Jan 2022](https://mpt.pt/wp-content/uploads/2022/01/MANIFESTO.ELEITORAL.PARTIDO.DA_.TERRA2022.pdf) |  | |
+| Partido da Terra  | [Jan 2022](https://mpt.pt/wp-content/uploads/2022/01/MANIFESTO.ELEITORAL.PARTIDO.DA_.TERRA2022.pdf) | Miguel Gomes | Nao terminado |
 | Partido Popular Monárquico | | | |
 | Partido Social Democrata | [Jan 2022](https://www.psd.pt/sites/default/files/2022-01/PSD%20Programa%20Eleitoral%202022%20v4.pdf) | Henrique Diogo Silva | Terminado |
 | Partido Socialista | [Jan 2022](https://programa.antoniocosta2022.pt/programa/Programa-Eleitoral-PS2022.pdf) | João Saro | Terminado |
