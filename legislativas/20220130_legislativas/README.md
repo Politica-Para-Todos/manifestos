@@ -37,7 +37,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 O IL durante o mês de Janeiro de 2022 alterou o seu programa eleitoral. Assim, decidiu-se converter essa nova versão do programa eleitoral:
 
 * `IL_20220109.md` - Versão de 09 de Janeiro de 2022, i.e., primeira versão disponibilizada;
-* `IL_20220117.md` - Versão de 17 de Janiero de 2022 convertida para markdown **sem alterações nenhumas**;
+* `IL_20220117.md` - Versão de 17 de Janeiro de 2022 convertida para markdown **sem alterações nenhumas**;
   
 **Comparar programas**
 
