@@ -30,6 +30,19 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Reagir Incluir Reciclar | [Jan 2022](http://partido-rir.pt/wp-content/uploads/2022/01/Rir_Programa_eleicoes22.pdf) | Francisco Frutuoso | Terminado |
 | Volt Portugal | [Dez 2021](https://assets.volteuropa.org/2021-12/Volt_Portugal-Programa_Politico.pdf) | Francisco Frutuoso | Terminado |
 
+## Comentários
+
+**Alteração programa eleitoral do IL**
+
+O IL durante o mês de Janeiro de 2022 alterou o seu programa eleitoral. Assim, decidiu-se converter essa nova versão do programa eleitoral:
+
+* `IL_20220109.md` - Versão de 09 de Janeiro de 2022, i.e., primeira versão disponibilizada;
+* `IL_20220117.md` - Versão de 17 de Janiero de 2022 convertida para markdown **sem alterações nenhumas**;
+  
+**Comparar programas**
+
+* `IL_20220109.md` vs `IL_20220117.md` [aqui](https://github.com/Politica-Para-Todos/manifestos/pull/60/files).
+
 ## Conversa
 
 Gerimos o nosso trabalho através de pull-requests e issues aqui no GitHub, mas também pelo nosso [grupo na plataforma Loomio](https://www.loomio.org/d/LxtvTelP/programas-em-markdown).
