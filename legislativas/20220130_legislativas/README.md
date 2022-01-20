@@ -16,7 +16,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | CHEGA | [Dez 2021](https://partidochega.pt/programa-eleitoral-legislativas-2022/) | Miguel Gomes | Terminado |
 | Ergue-te | [Jan 2022](http://www.partidoergue-te.pt/wp-content/uploads/2022/01/Programa-eleitoral-Ergue-te-Legislativas-2022.pdf) | Miguel Gomes | Terminado |
 | Iniciativa Liberal | [Jan 2022](https://iniciativaliberal.pt/wp-content/uploads/2022/01/Iniciativa-Liberal-Programa-Eleitoral-2022.pdf) | Francisco Frutuoso | Terminado |
-| Juntos pelo Povo | [Jan 2022](https://drive.google.com/drive/folders/1IiNuu5g7ud7VRzxRa5734eUi7lWCJLC_?usp=sharing) | | |
+| Juntos pelo Povo | [Jan 2022](https://drive.google.com/drive/folders/1IiNuu5g7ud7VRzxRa5734eUi7lWCJLC_?usp=sharing) | Luis Silva | Nao Terminado |
 | LIVRE | [Dez 2021](https://partidolivre.pt/wp-content/uploads/2021/12/Programa_Eleitoral_2022.pdf) | Tiago Sousa | Terminado |
 | Movimento Alternativa Socialista | [Dez 2021](https://drive.google.com/file/d/14pppABeQhmWhtgDB3ixiS6ntmkRDFyE-/view?usp=sharing) | Miguel Gomes | Terminado |
 | Nós, Cidadãos! | [Jan 2022](https://drive.google.com/file/d/1LmdQZ9sPanm48e6jPD6nup6J6NC06843/view) | Miguel Gomes | Terminado |
@@ -26,7 +26,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Partido Social Democrata | [Jan 2022](https://www.psd.pt/sites/default/files/2022-01/PSD%20Programa%20Eleitoral%202022%20v4.pdf) | Henrique Diogo Silva | Terminado |
 | Partido Socialista | [Jan 2022](https://programa.antoniocosta2022.pt/programa/Programa-Eleitoral-PS2022.pdf) | João Saro | Terminado |
 | Partido Trabalhista Português  |  |    | |
-| PESSOAS - ANIMAIS - NATUREZA | [Jan 2022]( https://www.pan.com.pt/eleicoes/eleicoes-legislativas-2022/programa-eleitoral-pan/) | Nuno Carneiro | Nao terminado |
+| PESSOAS - ANIMAIS - NATUREZA | [Jan 2022]( https://www.pan.com.pt/eleicoes/eleicoes-legislativas-2022/programa-eleitoral-pan/) | Nuno Carneiro & Luis Silva | Terminado |
 | Reagir Incluir Reciclar | [Jan 2022](http://partido-rir.pt/wp-content/uploads/2022/01/Rir_Programa_eleicoes22.pdf) | Francisco Frutuoso | Terminado |
 | Volt Portugal | [Dez 2021](https://assets.volteuropa.org/2021-12/Volt_Portugal-Programa_Politico.pdf) | Francisco Frutuoso | Terminado |
 
