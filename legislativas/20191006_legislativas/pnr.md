@@ -246,7 +246,6 @@ Para esse efeito, o PNR propõe o seguinte conjunto de medidas:
 * 7.4. Negociar com a UE a possibilidade de uma sobretaxa para os produtos de países que não respeitam os direitos sociais de quem trabalha e que recorrem à concorrência desleal;
 * 7.5. Renegociação dos contratos de exploração geológica-mineira.
 
-
 ### 8. FINANÇAS E FISCALIDADE
 
 É condição necessária para um crescimento económico sustentado, a existência de uma saudável situação financeira do país, a qual passa por um orçamento equilibrado e por um apertado controlo da dívida pública e da dívida externa.

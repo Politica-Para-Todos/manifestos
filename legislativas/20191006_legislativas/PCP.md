@@ -1,14 +1,14 @@
 # 1. Abertura
 
-O País, os direitos dos trabalhadores e do Povo português, conheceram nos últimos anos avanços só possíveis pela luta travada pelos trabalhadores e o Povo e pela acção determinante do PCP. Avanços que embora limitados e insuficientes, mostram um caminho que é necessário levar mais longe para romper com mais de quatro décadas de política de direita. Avanços para libertar o País dos constrangimentos que impedem o seu desenvolvimento. Avanços para avançar no sentido dos valores de Abril, da soberania, da justiça social, do progresso e da paz. 
+O País, os direitos dos trabalhadores e do Povo português, conheceram nos últimos anos avanços só possíveis pela luta travada pelos trabalhadores e o Povo e pela acção determinante do PCP. Avanços que embora limitados e insuficientes, mostram um caminho que é necessário levar mais longe para romper com mais de quatro décadas de política de direita. Avanços para libertar o País dos constrangimentos que impedem o seu desenvolvimento. Avanços para avançar no sentido dos valores de Abril, da soberania, da justiça social, do progresso e da paz.
 
-O PCP tem respostas e soluções para fazer o País avançar. Com um percurso que comprova o seu papel determinante no combate de décadas à política de direita, pelo seu papel nos avanços alcançados na última legislatura, pelo seu projecto, acção e coerência. O PCP assume-se como força de ruptura para construir um Portugal com futuro, pronto a assumir todas as responsabilidades que o povo português lhe queira atribuir para construir a política alternativa, patriótica e de esquerda, e um governo que a concretize. 
+O PCP tem respostas e soluções para fazer o País avançar. Com um percurso que comprova o seu papel determinante no combate de décadas à política de direita, pelo seu papel nos avanços alcançados na última legislatura, pelo seu projecto, acção e coerência. O PCP assume-se como força de ruptura para construir um Portugal com futuro, pronto a assumir todas as responsabilidades que o povo português lhe queira atribuir para construir a política alternativa, patriótica e de esquerda, e um governo que a concretize.
 
-Portugal precisa de uma outra política que, no cumprimento da Constituição da República, assuma a elevação das condições de vida dos trabalhadores e do povo, o desenvolvimento da produção nacional, a melhoria dos serviços públicos e a elevação do investimento público. Objectivos que, como a vida tem demonstrado, reclamam que se enfrentem as imposições da União Europeia e a submissão ao Euro e que se confronte o poder e os interesses do grande capital monopolista, que se combata a subordinação do poder político ao poder económico, base na qual se desenvolve a corrupção. Só um Programa para uma política patriótica e de esquerda estará em condições de garantir esse percurso. 
+Portugal precisa de uma outra política que, no cumprimento da Constituição da República, assuma a elevação das condições de vida dos trabalhadores e do povo, o desenvolvimento da produção nacional, a melhoria dos serviços públicos e a elevação do investimento público. Objectivos que, como a vida tem demonstrado, reclamam que se enfrentem as imposições da União Europeia e a submissão ao Euro e que se confronte o poder e os interesses do grande capital monopolista, que se combata a subordinação do poder político ao poder económico, base na qual se desenvolve a corrupção. Só um Programa para uma política patriótica e de esquerda estará em condições de garantir esse percurso.
 
-Um Programa com uma dimensão patriótica que coloque os interesses nacionais à frente das imposições externas, que recupere as parcelas desoberania perdidas e os instrumentos capazes de a efectivar, que proteja e valorize os recursos naturais e os coloque ao serviço do desenvolvimento presente e futuro do País. 
+Um Programa com uma dimensão patriótica que coloque os interesses nacionais à frente das imposições externas, que recupere as parcelas desoberania perdidas e os instrumentos capazes de a efectivar, que proteja e valorize os recursos naturais e os coloque ao serviço do desenvolvimento presente e futuro do País.
 
-Um Programa assumidamente de esquerda que assuma como objectivo central a valorização do trabalho e dos trabalhadores, a concretização das funções sociais do Estado e uma mais justa distribuição do rendimento e o controlo público dos sectores básicos e estratégicos da economia. 
+Um Programa assumidamente de esquerda que assuma como objectivo central a valorização do trabalho e dos trabalhadores, a concretização das funções sociais do Estado e uma mais justa distribuição do rendimento e o controlo público dos sectores básicos e estratégicos da economia.
 
 Um Programa para fazer o País avançar e que é realizável com o reforço da CDU e a determinação do Povo português, com a mobilização dos recursos e potencialidades nacionais.
 
@@ -16,17 +16,17 @@ Um Programa para fazer o País avançar e que é realizável com o reforço da C
 
 ## 1.1. PCP uma força para fazer o País avançar
 
-Foi a intervenção decisiva do PCP que, dando expressão à luta desenvolvida que conduziu ao isolamento social e política do governo PSD/CDS, confirmou no plano político a sua derrota. 
+Foi a intervenção decisiva do PCP que, dando expressão à luta desenvolvida que conduziu ao isolamento social e política do governo PSD/CDS, confirmou no plano político a sua derrota.
 
-A interrupção da acção destruidora do governo PSD/CDS em Outubro de 2015, seja pelo que se travou e evitou, seja pelo que se recuperou e avançou, constituiu uma importante decisão política que se fica a dever, em primeiro lugar, à acção determinada do PCP. 
+A interrupção da acção destruidora do governo PSD/CDS em Outubro de 2015, seja pelo que se travou e evitou, seja pelo que se recuperou e avançou, constituiu uma importante decisão política que se fica a dever, em primeiro lugar, à acção determinada do PCP.
 
-A nova fase da vida política nacional demonstrou que o País não estava, nem está, condenado ao declínio, ao empobrecimento ou à dependência externa. Desmentiu a tese, posta em prática ao longo de mais de quatro décadas, que era com a liquidação de direitos e o empobrecimento dos trabalhadores e do povo que o País tinha futuro. Provou que, ao contrário, é pela elevação das condições de vida dos trabalhadores e do povo que se pode assegurar o crescimento económico e a criação de emprego. 
+A nova fase da vida política nacional demonstrou que o País não estava, nem está, condenado ao declínio, ao empobrecimento ou à dependência externa. Desmentiu a tese, posta em prática ao longo de mais de quatro décadas, que era com a liquidação de direitos e o empobrecimento dos trabalhadores e do povo que o País tinha futuro. Provou que, ao contrário, é pela elevação das condições de vida dos trabalhadores e do povo que se pode assegurar o crescimento económico e a criação de emprego.
 
-Mas demonstrou também que a resposta plena aos problemas do País e às aspirações e interesses do povo, não é possível sem uma ruptura com a submissão às imposições e constrangimentos do Euro e da União Europeia e com a subordinação e compromisso com os interesses do grande capital. 
+Mas demonstrou também que a resposta plena aos problemas do País e às aspirações e interesses do povo, não é possível sem uma ruptura com a submissão às imposições e constrangimentos do Euro e da União Europeia e com a subordinação e compromisso com os interesses do grande capital.
 
-O que se avançou na defesa, reposição e conquista de direitos tem importância. Tanto mais quanto interrompeu um percurso prolongado de ataque a direitos que sucessivos governos de PS, PSD e CDS impuseram. Mas estes avanços não iludem que era necessário e possível ir mais além na resposta que a dimensão dos problemas exigia. 
+O que se avançou na defesa, reposição e conquista de direitos tem importância. Tanto mais quanto interrompeu um percurso prolongado de ataque a direitos que sucessivos governos de PS, PSD e CDS impuseram. Mas estes avanços não iludem que era necessário e possível ir mais além na resposta que a dimensão dos problemas exigia.
 
-Só não se avançou mais porque o PS não deixou, porque o PS mantém presente na sua governação opções essenciais da política de direita. 
+Só não se avançou mais porque o PS não deixou, porque o PS mantém presente na sua governação opções essenciais da política de direita.
 
 # 1.2. Os avanços alcançados
 
@@ -37,7 +37,6 @@ Com a luta dos trabalhadores e do povo, e a intervenção determinada do PCP, fo
 Entre muitos outros relevam a reposição de direitos roubados como salários e pensões de reforma, feriados, direito ao transporte dos ferroviários e complementos de reforma aos trabalhadores do Sector Empresarial do Estado. O Salário Mínimo Nacional foi aumentado, ainda que aquém do necessário e possível. Repuseram-se os instrumentos de contratação colectiva no Sector Público Empresarial e eliminaram-se as restrições à contratação de trabalhadores na Administração Local.
 
 Reverteram-se as privatizações da Carris, do Metropolitano de Lisboa e dos STCP e, ainda que parcialmente, na TAP.
-
 
 Pôs-se fim aos cortes nas pensões e promoveu-se o seu aumento. Valorizou-se o abono de família, alargou-se o abono pré-natal e o apoio às pessoas com deficiência, designadamente com a criação da Prestação Social para a inclusão e a reposição das condições do pagamento do Complemento por Dependência.
 
@@ -293,7 +292,7 @@ Revisão da legislação da contratação pública eliminando constrangimentos �
 
 *– Políticas e medidas que travem a perda de rendimento nacional* para o estrangeiro sob a forma de dividendos e juros, quer pela reversão da titularidade de empresas estratégicas privatizadas quer pelo incentivo ao reinvestimento em Portugal. O saldo das transferências com a União Europeia entre 2016 e 2018 que foi de 5,9 mil milhões de euros, é inferior em cerca de 13,9 mil milhões de euros ao saldo negativo das entradas e saída global (ainda que esmagadoramente resultantes da relação com os países da UE) de dividendos, lucros distribuídos e juros neste mesmo período. Ou seja saíram de Portugal neste período mais do dobro do saldo das transferências de fundos comunitários. Tudo resultado das operações de privatização efectuadas nas últimas décadas, que colocaram em mãos estrangeiras a maioria do capital dos grupos económicos e financeiros e que se reflecte na cada vez maior saída de dividendos e lucros e no enorme endividamento externo traduzido na factura de juros.
 
-*– Impedir «rendas/lucros de monopólio».* 
+*– Impedir «rendas/lucros de monopólio».*
 O processo de privatização e liberalização de sectores estratégicos produtores de bens e serviços essenciais à economia e à sociedade levou à criação de verdadeiros monopólios que, tirando partido de posições dominantes, obtêm superlucros, prejudicam a competitividade nacional e põe em causa a sobrevivência de muitas pequenas e médias empresas, a par do agravamento do custo de vida das famílias portuguesas. É nomeadamente o caso da energia eléctrica, dos combustíveis fósseis, das telecomunicações, da banca e dos seguros, da grande distribuição, das principais indústrias da fileira da madeira e de outros factores de produção.
 
 Até que o Estado reassuma o seu controlo público, o PCP defende que através das entidades reguladoras, nomeadamente da Autoridade da Concorrência, e outras estruturas do Estado, seja feito um levantamento exaustivo dessas situações no sentido de: ajustar preços de bens e serviços; devolver rendas excessivas apuradas; regularizar e regular as relações contratuais com as MPME à margem das leis.
@@ -730,7 +729,7 @@ São os que clamam pela preservação dos solos e a poupança da água e depois 
 
 *– A promoção de políticas de defesa e valorização do mundo rural e das regiões do interior e insulares*, em particular com políticas de investimento adequadas (Orçamentos do Estado e Portugal 2030), o cumprimento de obrigações de serviço público (serviços de saúde e educação, serviços financeiros, transportes, comunicações, telecomunicações, energia, e outros) e a correcção do desenvolvimento desigual.
 
---- 
+---
 
 ### Uma política de desenvolvimento regional
 
@@ -1289,7 +1288,7 @@ Universalização do abono de família e do abono pré-natal, com valorização 
 
 O princípio inscrito no artigo 65º da Constituição da República Portuguesa continua por cumprir. Fruto da especulação imobiliária e financeira, o direito à habitação foi transformado num negócio e o preço das rendas tornou-se proibitivo para a generalidade dos trabalhadores. Milhares de famílias foram despejadas nos últimos anos, sendo empurradas para a periferia e para situações de habitação precária. O direito à habitação emergiu nos últimos anos como uma das principais preocupações da sociedade portuguesa. A aprovação da Lei de Bases da Habitação já em 2019, 43 anos após a entrada em vigor da Constituição da República Portuguesa, constitui um avanço se a ela corresponder o efectivo assegurar pelo Estado das responsabilidades, funcionamento e investimento indispensáveis à sua efectivação.
 
---- 
+---
 
 ### A lei dos despejos
 
@@ -1521,7 +1520,7 @@ O PCP considera que é urgente concretizar um processo de autêntica democratiza
 
 # AFIRMAR A DEMOCRACIA, CUMPRIR A CONSTITUIÇÃO
 
---- 
+---
 
 A Constituição de 1976, resultante da Revolução de Abril e consagrando as suas conquistas, apesar da descaracterização imposta em sucessivas revisões constitucionais, mantém um conteúdo progressista, de garantia de direitos fundamentais, de defesa das funções sociais do Estado, de configuração de um regime de democracia política, económica, social e cultural. A Constituição e os mecanismos institucionais que a garantem são um sério obstáculo à prossecução das políticas de destruição de direitos e de degradação do regime democrático.
 
@@ -1773,7 +1772,7 @@ Não ignorando avanços positivos, o PCP considera ser condição necessária pa
 
 *– Revalorizar a Polícia Judiciária*, estancar a deterioração da situação operacional da polícia científica.
 
---- 
+---
 
 *O combate firme à corrupção não passa pela adopção de mecanismos como as «delações premiadas» que, em nome desse combate, destruam garantias fundamentais e instituam as bases de um Estado policial sem controlo democrático.*
 
@@ -1888,7 +1887,6 @@ A União Europeia permanece envolta numa profunda crise cujas causas radicam na 
 A grave situação na Europa exige uma profunda reflexão sobre as suas reais causas. Não fazer esse questionamento e insistir nos caminhos que trouxeram a Europa até este ponto – o caminho da integração capitalista europeia – é permitir a continuação de um rumo que poderá ter consequências profundamente negativas para os povos da Europa.
 
 São necessárias e possíveis outras relações entre os Estados e povos da Europa. Um caminho para o relacionamento entre Estados soberanos e iguais em direitos na Europa, para uma Europa assente no respeito, na democracia, no progresso e coesão social, na defesa do meio ambiente, na paz, na cooperação, na solidariedade.
-
 
 ---
 
