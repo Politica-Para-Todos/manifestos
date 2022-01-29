@@ -38,7 +38,7 @@ O IL durante o mês de Janeiro de 2022 alterou o seu programa eleitoral. Assim, 
 
 * `IL_20220109.md` - Versão de 09 de Janeiro de 2022, i.e., primeira versão disponibilizada;
 * `IL_20220117.md` - Versão de 17 de Janeiro de 2022 convertida para markdown **sem alterações nenhumas**;
-  
+
 **Comparar programas**
 
 * `IL_20220109.md` vs `IL_20220117.md` [aqui](https://github.com/Politica-Para-Todos/manifestos/pull/60/files).
