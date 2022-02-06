@@ -50,7 +50,7 @@ Portugal tem condições excepcionais para se tornar um exemplo de sustentabilid
 
 É desejável antecipar a data prevista para atingirmos a neutralidade carbónica (2050). Quer através da redução das emissões de gases com efeito estufa quer através de um esforço alargado da capacidade de captura de carbono da atmosfera.
 
-Entretanto, o esforço que estes objetivos exigem poderá ser estéril caso não sejamos capazes de salvaguardar o que consideramos recursos estratégicos: a água, o solo e o mar. 
+Entretanto, o esforço que estes objetivos exigem poderá ser estéril caso não sejamos capazes de salvaguardar o que consideramos recursos estratégicos: a água, o solo e o mar.
 
 Precisamos de dotar Portugal de uma capacidade aumentada de reservas estratégicas de água, quer ao nível das águas subterrâneas quer pela capacidade de retenção de águas superficiais.
 
@@ -325,7 +325,6 @@ Sendo os partidos políticos um dos pilares fundamentais do funcionamento das in
 
 * A implementação de regras obrigatórias de rigor e transparência no funcionamento dos partidos políticos.
 * Valorização da componente da formação política no funcionamento e financiamento dos partidos políticos.
-
 
 ### RECUPERAR A CONFIANÇA NO SISTEMA DE JUSTIÇA: O CIDADÃO NO CENTRO DA REFORMA
 
@@ -882,7 +881,7 @@ Apresentamos de seguida as linhas de ação prioritária que pretendemos estrutu
 
 #### Renovar as gerações, preparar o futuro
 
-Portugal é dos países da U.E. com a população agrícola mais envelhecida, com uma idade média de 65 anos, 55% com idade superior a esta média e apenas 4% com menos de 40 anos. 
+Portugal é dos países da U.E. com a população agrícola mais envelhecida, com uma idade média de 65 anos, 55% com idade superior a esta média e apenas 4% com menos de 40 anos.
 
 Impõe-se, assim, uma política robusta de apoio aos jovens agricultores em geral e nos que iniciam a sua atividade em particular. A robustez desta nova política deverá ser acompanhada de uma maior exigência, a fim de se reduzirem as taxas de insucesso. Neste sentido, implementaremos as seguintes medidas:
 
@@ -1114,7 +1113,7 @@ Ao contrário do que se pode pensar, as diferenças no uso da língua portuguesa
 
 * Neste sentido, o PSD entende que importa avaliar o real impacto do novo Acordo Ortográfico - que se tornou obrigatório em 2015 - e ponderar a respetiva revisão face ao evidente insucesso da sua generalização entre os países de língua oficial portuguesa e mesmo entre os autores portugueses.
 
-O PSD defende ainda que é possível fazer mais e melhor em defesa da nossa língua, nomeadamente: 
+O PSD defende ainda que é possível fazer mais e melhor em defesa da nossa língua, nomeadamente:
 
 * Através do recurso às plataformas e redes digitais para a promoção das obras culturais, dos conteúdos e dos materiais de apoio à aprendizagem do Português.
 * Pelo reforço da rede de leitorados, nomeadamente nas universidades estrangeiras que se integram em regiões com maior potencial de desenvolvimento e cooperação.
@@ -1285,7 +1284,7 @@ O PSD entende ainda que se deverá mudar, de forma gradual, a natureza das prova
 
 ### DIGNIFICAR A PROFISSÃO DOCENTE
 
-É preocupante a progressiva degradação da condição docente. Educadores e professores têm assistido, especialmente na última década, a uma perda significativa do nível remuneratório em  comparação  com  outras  profissões  da  administração  pública,  acompanhada  de  um desgaste das condições de exercício da sua atividade e da banalização do acesso à profissão. 
+É preocupante a progressiva degradação da condição docente. Educadores e professores têm assistido, especialmente na última década, a uma perda significativa do nível remuneratório em  comparação  com  outras  profissões  da  administração  pública,  acompanhada  de  um desgaste das condições de exercício da sua atividade e da banalização do acesso à profissão.
 
 O PSD entende que a qualificação da escola pública exige da parte do Estado maior critério e rigor na admissão dos novos profissionais e maior empenho na sua formação ao longo da respetiva carreira. Se ambicionamos ter melhores escolas, tal só é possível se escolhermos os melhores professorese os capacitarmos para uma melhoria contínua do seu desempenho.
 
@@ -1368,7 +1367,7 @@ O  conhecimento  tem  sido,  desde  sempre,  considerado  um  importante  recurs
 
 Portugal deve ambicionar ser um País protagonista no Mundo do Conhecimento. Para tal, devem ser criadas as condições necessárias para que as Instituições de Ensino Superior e de Ciência, enquanto espaços privilegiados para a produção de conhecimento e inovação, possam continuar a cumprir com sucesso a sua missão de produzir e transferir conhecimentos e competências, em prol do desenvolvimento da sociedade e da concretização das necessidades e expectativas sociais, económicas e culturais dos Portugueses.
 
-O PSD defende a adoção de uma Estratégia para a Ciência e a Inovação (C&I), estruturada em torno de três desígnios fundamentais: 
+O PSD defende a adoção de uma Estratégia para a Ciência e a Inovação (C&I), estruturada em torno de três desígnios fundamentais:
 
 * Desígnio identitário, que reconhece a C&I como ativo de produção de conhecimento, da formação humanista e social do indivíduo, da inovação dos meios de intervenção e da capacitação analítica e crítica (A Pessoa);
 * Desígnio funcional ou operativo, que assume a C&I como ativo para o crescimento económico e bem-estar da sociedade (O País e a Sociedade);
@@ -1376,15 +1375,15 @@ O PSD defende a adoção de uma Estratégia para a Ciência e a Inovação (C&I)
 
 Considerando os desígnios enunciados, apresentamos as linhas de ação política que iremos adotar para a renovação que se impõe do modelo nacional de C&I:
 
-* Adotar políticas transversais de sustentabilidade e qualidade visando:  garantir objetivos claros de médio e longo prazo que prometam um retorno social e económico; 
+* Adotar políticas transversais de sustentabilidade e qualidade visando:  garantir objetivos claros de médio e longo prazo que prometam um retorno social e económico;
 * Fortalecer o investimento em recursos humanos, reforçar as ligações entre o sistema científico e a sociedade;
-* Promover a política de “Ciência Aberta”, apostando na cultura científica e na disseminação de método científico; 
+* Promover a política de “Ciência Aberta”, apostando na cultura científica e na disseminação de método científico;
 * Promover o desenvolvimento da rede de Instituições de Investigação e de Inovação;
 * Reforçar a sinergia entre o Ensino Superior, a Investigação e a Inovação garantindo sistema mais coeso;
 * Melhorar  a  estratégia  de  recrutamento,  definindo  uma  estratégia  abrangente e consensualizada, entre os parceiros para o Ensino Superior, a Ciência e a Inovação. Esta estratégia deve refletir uma visão integrada e incluir um programa-quadro plurianual, estável e transparente, com prioridades, níveis de financiamento e metas bem definidas;
 * Reorganizar as agências de financiamento como organismos independentes do Governo, visando a autonomia da C&I;
 * Criar condições para quePortugal alcance até 2030 o valor de 5% do PIB de investimento (público e privado) nas três áreas do triângulo do conhecimento (Ensino Superior, Ciência, Inovação, incluindo a Sociedade de Informação);
-* Projetar um Modelo de Financiamento de dimensão material adequada à missão, coerente e transparente, menos burocratizado, mais estável e assente na qualidade e na meritocracia; 
+* Projetar um Modelo de Financiamento de dimensão material adequada à missão, coerente e transparente, menos burocratizado, mais estável e assente na qualidade e na meritocracia;
 * Apostar na manutenção e modernização das infraestruturas de C&I, assegurando um conjunto coerente de infraestruturas a nível nacional, regional e local (nomeadamente, a reedição de um programa de reequipamento científico e tecnológico) num quadro estratégico de desenvolvimento do sistema científico e de relevância para a economia e a sociedade;
 * Formular um modelo de avaliação de atividade que reforce a prossecução dos grandes objetivos nacionais, consolide as instituições nas suas missões próprias diferenciadas e dê incentivos individuais e de grupo;
 * Integrar plenamente os requisitos éticos da investigação científica ao longo do seu processo de desenvolvimento (ab initio ad terminum), no reforço da sua qualificação internacional entre pares e da sua fiabilidade socialmente reconhecida, através de programas de formação, de serviços de consultadoria, de práticas de avaliação e supervisão e da creditação da comunicação pública da ciência;
@@ -1404,7 +1403,7 @@ Considerando os desígnios enunciados, apresentamos as linhas de ação polític
 
 ### DESENVOLVIMENTO TECNOLÓGICO, DIGITALIZAÇÃO E INTELIGÊNCIA ARTIFICIAL: PREPARAR O PAÍS E AS NOVAS GERAÇÕES
 
-A força motriz do desenvolvimento económico e social de Portugal, e também da Europa, assenta essencialmente no desenvolvimento tecnológico e digital, com particular enfoque em sistemas de Inteligência Artificial (IA). 
+A força motriz do desenvolvimento económico e social de Portugal, e também da Europa, assenta essencialmente no desenvolvimento tecnológico e digital, com particular enfoque em sistemas de Inteligência Artificial (IA).
 
 É numa forte aposta na modernização e digitalização da nossa economia e sociedade que reside a oportunidade para Portugal se posicionar ao nível em que já se encontram outros países mais desenvolvidos. Teremos de ser capazes de usar a oportunidade desta nova vaga digital para sermos produtores e exportadores de conhecimento, aproveitar as áreas em que a digitalização ainda está a dar os primeiros passos (por exemplo, saúde, agricultura, educação) e usar as novas tecnologias – das quais a IA é fundamental –  para que sejam desenvolvidos novos produtos e serviços, aumentar a nossa produtividade, competitividade e capacidade exportadora.
 
@@ -1497,11 +1496,11 @@ Neste contexto as prioridades da ação política do PSD devem orientar-se para:
 * Suavização da transição tarifária entre Comunidades Intermunicipais e entre Comunidades Intermunicipais e Áreas Metropolitanas;
 * Reconversão progressiva das frotas de automóveis do Estado e das Autarquias para veículos não poluentes;
 * Aumento da extensão de faixas BUS nos principais acessos aos centros das áreas metropolitanas;
-* Estimular a mobilidade suave e ativa, nomeadamente a definição de regras para o uso de trotinetas e incentivo ao uso de bicicletas. Promover o design inclusivo do espaço público e do alargamento da resposta em termos de mobilidade a pessoas com mobilidade reduzida (grávidas, crianças, deficientes e idosos, etc.); 
+* Estimular a mobilidade suave e ativa, nomeadamente a definição de regras para o uso de trotinetas e incentivo ao uso de bicicletas. Promover o design inclusivo do espaço público e do alargamento da resposta em termos de mobilidade a pessoas com mobilidade reduzida (grávidas, crianças, deficientes e idosos, etc.);
 * Estimular a mobilidade partilhada: frotas partilhadas disponíveis nos grandes centros urbanos, em particular tendo em atenção campi de instituições de ensino superior, e enquadradas nos passes intermodais;
 * Elaboração de enquadramentos regulatórios que permitam novos negócios relacionados com a mobilidade inteligente, abrindo o mercado a novos players;
-* Expansão da rede pública de carregamentos de veículos elétricos em articulação com o setor, devendo ser garantida a elaboração e execução de uma rede pública de postos de carregamento, consistente com um racional de atendimento ao público e conjugada com a coesão territorial; 
-* Preparar as infraestruturas para a evolução tecnológica, por exemplo, carros autónomos. 
+* Expansão da rede pública de carregamentos de veículos elétricos em articulação com o setor, devendo ser garantida a elaboração e execução de uma rede pública de postos de carregamento, consistente com um racional de atendimento ao público e conjugada com a coesão territorial;
+* Preparar as infraestruturas para a evolução tecnológica, por exemplo, carros autónomos.
 
 ### QUALIDADE DO AR E EFICIÊNCIA ENERGÉTICA
 
@@ -1977,7 +1976,7 @@ Uma gestão da dívida assente nestes princípios de prudência permite enfrenta
 
 Mas é também promover, no contexto europeu, soluções ambiciosas:
 
-* a compra das OT’s (Obrigações do Tesouro, isto é a dívida de médio e longo prazo de Portugal) que estão no Eurosistema pelo ESM (European Stability Mechanism, ou seja, o Mecanismo Europeu de Estabilidade, o mecanismo criado para a assistência financeira aos países da zona Euro); 
+* a compra das OT’s (Obrigações do Tesouro, isto é a dívida de médio e longo prazo de Portugal) que estão no Eurosistema pelo ESM (European Stability Mechanism, ou seja, o Mecanismo Europeu de Estabilidade, o mecanismo criado para a assistência financeira aos países da zona Euro);
 * a criação de uma linha cautelar do ESM superior à atual, de apenas 1 ano;
 * a mutualização da dívida através de Eurobonds até 60%. De todas estas hipóteses, a adoção de Eurobonds – apesar das dificuldades políticas associadas ao inerente aprofundamento do projeto político europeu (desde logo, com a criação de um Tesouro europeu) – seria a solução que maiores vantagens poderia proporcionar a Portugal.
 
@@ -2029,7 +2028,7 @@ A Administração Pública viveu nos últimos anos um processo de definhamento c
 ..* O desenvolvimento de um modelo de recrutamento orientado e seletivo de novos quadros técnicos que permitam a retenção e a reprodução do conhecimento dos trabalhadores que vão saindo (qualificação), especialmente em áreas nucleares do serviço público, como a saúde, a justiça, a regulação e a inspeção, a proteção social, entre outras;
 ..* O desenvolvimento de programas de formação, que permitam uma maior mobilidade entre carreiras e grupos profissionais;
 
-* Revisão de carreiras e reforço dos instrumentos de flexibilidade laboral. Em concreto, deverão ser prosseguidos os seguintes objetivos: 
+* Revisão de carreiras e reforço dos instrumentos de flexibilidade laboral. Em concreto, deverão ser prosseguidos os seguintes objetivos:
 
 ..* Continuar o processo de aproximação da Lei Geral do Trabalho em Funções Públicas do regime geral aplicável ao setor privado;
 ..* Fazer um levantamento de todos os regimes de exceção, em matéria laboral, com vista à avaliação da sua necessidade e adequabilidade e, caso não se justifiquem, à sua supressão;

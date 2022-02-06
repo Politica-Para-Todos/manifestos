@@ -3,7 +3,7 @@
 
 ### **101 PROPOSTAS**
 ### **5 Grandes Desafios**
- 
+
 #### **CONTRA A PRECARIEDADE DE PESSOAS E ECOSSISTEMAS**
 
 #### **PELA TRANSPARÊNCIA E CONTRA A CORRUPÇÃO**
@@ -13,11 +13,9 @@
 #### **POR UM ESTADO CAPAZ DE SE REFORMAR**
 
 #### **PELA EDUCAÇÃO, CULTURA E CIÊNCIA AO LONGO DA VIDA**
- 
-
 
 ## **1 • CONTRA A PRECARIEDADE DE PESSOAS E ECOSSISTEMAS**
- 
+
 **Mais pelas famílias, jovens e idosos**
 
 1. Famílias start-up. Baixar em 25% a matéria coletável do IRS para jovens casais com um filho, 35% para quem tiver dois e assim consecutivamente
@@ -243,7 +241,7 @@
 95. Garantir o acompanhamento da comunidade portuguesa residente na União Europeia, através das redes de associativismo, dos conselheiros das comunidades, e apoio a órgãos de comunicação social
 
 ## **5 • PELA EDUCAÇÃO, CULTURA E CIÊNCIA AO LONGO DA VIDA**
- 
+
 96. Apoiar as indústrias culturais nacionais que deveriam ser fonte de orgulho, investimento e turismo, e símbolo da sociedade pela qual aspiramos, com até 2% do OE para a cultura
 
 97. Valorizar o ensino artístico, e musical, alargado em parceria com associações e entidades da sociedade civil

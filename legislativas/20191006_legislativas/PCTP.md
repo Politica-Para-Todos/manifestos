@@ -1,4 +1,4 @@
-# MANIFESTO ELEITORAL 
+# MANIFESTO ELEITORAL
 
 # POR UM NOVO RUMO!
 # POR UMA SOLUÇÃO OPERÁRIA E COMUNISTA!
@@ -67,7 +67,7 @@ E tudo isto não incomoda as muletas PCP/BE/VERDES do governo, que se limitam ag
 
 Por outro lado, os sinais do reflexo da crise na economia alemã, já começam a ser visíveis com o aumento do défice externo a subir 0,2% do PIB, e a descida, simultaneamente, da taxa de crescimento económico, que passou de 2,8% em 2017 para 1,7% em 2018. Este governo quer apresentar-se como o governo do rigor e das contas certas, dos ministros dedicados que não têm férias, quando o país precisa. Mas, os portugueses sabem que não é assim.
 
-O país nunca poderá esquecer o que aconteceu com as tragédias dos incêndios de 2017 em Pedrógão, Castanheira de Pêra e Figueiró dos Vinhos e a responsabilidade assassina do Governo de Costa, nem onde estava este senhor enquanto a tragédia se desenrolava! 
+O país nunca poderá esquecer o que aconteceu com as tragédias dos incêndios de 2017 em Pedrógão, Castanheira de Pêra e Figueiró dos Vinhos e a responsabilidade assassina do Governo de Costa, nem onde estava este senhor enquanto a tragédia se desenrolava!
 
 Também não esquece os casos de corrupção e da cadeia de favores de um governo e de um partido em que as ligações familiares constituem uma rede interminável.
 
@@ -143,7 +143,7 @@ Os candidatos do PCTP/MRPP propõem-se defender e lutar dentro e fora do parlame
 
 18. Construção do aeroporto internacional de Lisboa, em Alcochete, como investimento estratégico que se prende com a independência e o desenvolvimento futuro de Portugal e abandono imediato do projecto de apeadeiro que constitui a proposta do aeroporto no Montijo.
 
-19. Linha ferroviária de alta velocidade, com um traçado entre Sines, Lisboa, Porto e Vigo, e uma derivação de Aveiro para Vilar Formoso, que assegure uma ligação ao resto da Europa através da chamada rota dos emigrantes (Salamanca, Burgos, Hendaya), permitindo que Portugal se constitua como porta de entrada e saída do essencial das mercadorias de e para a Europa, adquirindo uma nova centralidade europeia e do Atlântico, com as Regiões Autónomas, uma nova centralidade mundial. 
+19. Linha ferroviária de alta velocidade, com um traçado entre Sines, Lisboa, Porto e Vigo, e uma derivação de Aveiro para Vilar Formoso, que assegure uma ligação ao resto da Europa através da chamada rota dos emigrantes (Salamanca, Burgos, Hendaya), permitindo que Portugal se constitua como porta de entrada e saída do essencial das mercadorias de e para a Europa, adquirindo uma nova centralidade europeia e do Atlântico, com as Regiões Autónomas, uma nova centralidade mundial.
 
 20. Adopção de uma estratégia de investimento apoiada na economia do mar, com total e firme oposição a qualquer tentativa de anexação dos nossos mares e fundos marinhos.
 
@@ -168,7 +168,6 @@ PELA INDEPENDÊNCIA E DESENVOLVIMENTO DO PAÍS!
 POR UM NOVO RUMO PARA O PAÍS!
 POR UMA SOLUÇÃO OPERÁRIA E COMUNISTA!
 VOTA PCTP/MRPP!
-
 
 # POR UM NOVO RUMO!
 # POR UMA SOLUÇÃO OPERÁRIA E COMUNISTA!

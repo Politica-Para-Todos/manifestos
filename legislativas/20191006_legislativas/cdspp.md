@@ -1296,7 +1296,6 @@ A importância da formação profissional exige um processo de recrutamento e se
 
 As pessoas não podem ficar dependentes da formação que o Estado pré-formatou. Cada caso é um caso e não acreditamos numa formação profissional que não se adapta às necessidades de cada um. Adotaremos a liberdade de escolha plena no âmbito da formação profissional, cabendo a cada um e, se for o caso, em conjunto com a empresa, escolher onde quer receber a formação profissional e quais as unidades de formação que devem compor o percurso formativo.
 
-
 ## 7. UM ENSINO SUPERIOR PARA UM MUNDO GLOBAL E CONCORRENCIAL
 
 Em meados dos anos 60 a oportunidade de acesso ao ensino superior para estudantes com pais com escolaridade de nível superior era 488 vezes maior do que a dos jovens com pais sem escolaridade. Em 2010 esta relação tinha baixado para quatro vezes.
@@ -2258,7 +2257,7 @@ O Estado deve ser mais competente a regular e a fiscalizar, menos obsessivo a pr
 Esta visão do Estado é do interesse do cidadão porque consagra liberdade de escolha, universaliza o acesso e garante mais eficiência e organização na prestação de serviços.
 
 É do interesse do Estado porque o concentra na regulação, financiamento e fiscalização, delegando para os setores social, cooperativo e
-privado parte da função prestadora. 
+privado parte da função prestadora.
 
 ## 3. REFORMAR PARA PRESERVAR
 
@@ -2446,7 +2445,7 @@ Nacional de Cuidados Paliativos.
 
 ### 4.4. A qualidade dos cuidados de saúde é mais importante do que as ideologias partidárias
 
-O mais importante em qualquer prestação de cuidados de saúde deve ser a qualidade e os resultados obtidos para o doente. Queremos 
+O mais importante em qualquer prestação de cuidados de saúde deve ser a qualidade e os resultados obtidos para o doente. Queremos
 por isso garantir que a gestão do SNS esteja centrada na qualidade e no valor efetivo obtido para o doente, mais do que nos resultados de
 produção ou não nas ideologias partidárias.
 
@@ -2476,7 +2475,7 @@ O envelhecimento das populações, o consequente aumento da prevalência das doe
 Uma programação plurianual vertida em orçamentos de continuidade, que permita perspetivas de médio-longo prazo com a flexibilidade que as necessidades clínicas pontuais obrigam. são fundamentais para responder a estes desafios.
 
 Simultaneamente devem existir maiores incentivos à produtividade e estabilidade, bem como um maior reconhecimento do mérito. A alta rotatividade de profissionais de saúde produz uma enorme perda de eficiência e produtividade. A falta de motivação e exposição ao burnout
-põe em causa a resposta do SNS. 
+põe em causa a resposta do SNS.
 
 Devem igualmente desenvolver-se as medidas necessárias no sentido de os contratos-programa passarem a contemplar os aumentos de despesa decorrentes do Livre Acesso e Circulação de Utentes.
 
@@ -2524,7 +2523,7 @@ Identificaremos clara e exaustivamente os vários constrangimentos das unidades 
 
 A complexidade organizacional do nosso SNS caracteriza-se por diversos níveis de decisão, que resultam numa morosidade e complexidade desnecessárias, com reconhecida perda de eficiência.
 
-No organigrama do Sistema de Saúde encontram-se inúmeras redundâncias, faltas de articulação e assimetria organizacional, que promovem o desperdício, a ineficiência e a difícil integração de serviços e cuidados que absorvem recursos que poderiam ser investidos na melhoria dos cuidados assistenciais prestados às populações. Assim, precisamos de menos instituições, mas instituições fortes, cuja eficiência possibilite menos órgãos diretivos e mais centralidade e investimento nos cuidados aos cidadãos.  
+No organigrama do Sistema de Saúde encontram-se inúmeras redundâncias, faltas de articulação e assimetria organizacional, que promovem o desperdício, a ineficiência e a difícil integração de serviços e cuidados que absorvem recursos que poderiam ser investidos na melhoria dos cuidados assistenciais prestados às populações. Assim, precisamos de menos instituições, mas instituições fortes, cuja eficiência possibilite menos órgãos diretivos e mais centralidade e investimento nos cuidados aos cidadãos.
 
 Queremos um reforço do investimento nas tecnologias de informação em saúde, apostando na harmonização e interoperabilidade dos sistemas que permitirão esta otimização e monitorização.
 
@@ -2572,7 +2571,7 @@ Teremos nutricionistas nos ACES, colaborando com as escolas, e criando condiçõ
 ### 4.8. Ciência enquanto alavanca da excelência do SNS
 
 Os níveis de produção científica dos países constituem um indicador importante da vitalidade da sua sociedade e, mais em particular, do seu
-sistema de saúde. A investigação clínica promove a qualidade e atualização constante dos serviços prestados à população. Neste contexto, Portugal apresenta níveis de produção científica na área da medicina de translação inferiores a outros países semelhantes em termos de dimensão e desenvolvimento. Existe, portanto, a necessidade de incentivar a investigação clínica em Portugal, e de passar da teoria à prática. 
+sistema de saúde. A investigação clínica promove a qualidade e atualização constante dos serviços prestados à população. Neste contexto, Portugal apresenta níveis de produção científica na área da medicina de translação inferiores a outros países semelhantes em termos de dimensão e desenvolvimento. Existe, portanto, a necessidade de incentivar a investigação clínica em Portugal, e de passar da teoria à prática.
 
 #### 4.8.1. Melhoremos os regimes de acumulação de atividade assistencial, científica e pedagógica para os Profissionais do Serviço Nacional de Saúde
 
@@ -2601,7 +2600,7 @@ O compromisso dos hospitais neste desígnio deve ser incentivado e por isso quer
 
 Determinaremos que em cada conselho de administração hospitalar, em particular dos hospitais universitários, exista um elemento especificamente dedicado à promoção da investigação científica e gestão de ensaios clínicos.
 
-## 5. A REFORMA NA JUSTIÇA É ESSENCIAL PARA AS PESSOAS E DETERMINANTE PARA A ECONOMIA 
+## 5. A REFORMA NA JUSTIÇA É ESSENCIAL PARA AS PESSOAS E DETERMINANTE PARA A ECONOMIA
 
 O sistema de justiça é um pilar do Estado de Direito.
 
@@ -2615,7 +2614,7 @@ Uma justiça pouco amiga da economia e da competitividade, com reflexos sérios 
 
 Uma justiça que não chega a todos, em particular aos que não conseguem suportar os seus encargos.
 
-O desafio que nos propomos é claro: queremos reformar o sistema de justiça, dando segurança e confiança às pessoas e às empresas para que aqui vivam, aqui se estabeleçam, aqui se encontrem e negoceiem, aqui construam os seus projetos de vida. 
+O desafio que nos propomos é claro: queremos reformar o sistema de justiça, dando segurança e confiança às pessoas e às empresas para que aqui vivam, aqui se estabeleçam, aqui se encontrem e negoceiem, aqui construam os seus projetos de vida.
 
 Para isso, definimos uma reforma de acordo com quatro linhas de força:
 
@@ -2641,7 +2640,7 @@ pelos princípios da necessidade, exigibilidade, adequação e proporcionalidade
 
 O sistema de acesso ao direito e aos tribunais deixou de dar resposta, não só porque está desatualizado face à nova dinâmica económica e social, mas porque foi construído em função de uma realidade de custas judiciais que não existe mais.
 
-Vamos proceder à revisão do regime de acesso ao direito, e que deve incidir, entre outras coisas, na revisão do conceito de insuficiência económica, na extensão do benefício do apoio judiciário a pessoas coletivas, na inclusão de todos os meios alternativos de resolução alternativa de litígios, na reformulação do regime do pagamento faseado, na imputação dos custos do processo ao beneficiário se, posteriormente à concessão, estiver já em condições de os pagar ou na recuperação da ideia da Comissão de Acompanhamento do Sistema de Acesso ao Direito. 
+Vamos proceder à revisão do regime de acesso ao direito, e que deve incidir, entre outras coisas, na revisão do conceito de insuficiência económica, na extensão do benefício do apoio judiciário a pessoas coletivas, na inclusão de todos os meios alternativos de resolução alternativa de litígios, na reformulação do regime do pagamento faseado, na imputação dos custos do processo ao beneficiário se, posteriormente à concessão, estiver já em condições de os pagar ou na recuperação da ideia da Comissão de Acompanhamento do Sistema de Acesso ao Direito.
 
 #### 5.1.3. O Tribunal Constitucional é também um Tribunal dos cidadãos
 
@@ -2668,7 +2667,7 @@ Criaremos uma Comissão de Avaliação dos mecanismos pré-judiciais, públicos 
 
 #### 5.2.2. A aposta em mecanismos preventivos ou alternativos de resolução de conflitos deve ser acessível e transparente
 
-Criaremos um sistema informático multi-door de resolução de litígios, público e privado, com porta de entrada única, permitindo a orientação de cidadãos e empresas na escolha do caminho a seguir para a resolução de um litígio. 
+Criaremos um sistema informático multi-door de resolução de litígios, público e privado, com porta de entrada única, permitindo a orientação de cidadãos e empresas na escolha do caminho a seguir para a resolução de um litígio.
 
 Um tal sistema multi-door, a partir desse portal único, deve conter informação transparente e comparativa das várias vias alternativas ao
 dispor dos particulares (tipo de resposta; formalidades; custos/encargos; tempo médio de duração do processo; outros).
@@ -2689,7 +2688,7 @@ Propomos a:
 
 * (a) As chamadas bagatelas jurídicas podem e devem ser retiradas dos tribunais
 
-Os Julgados de Paz foram criados com o propósito de ali serem julgadas as causas mais simples e, assim, retirar dos tribunais o peso das chamadas bagatelas jurídicas. Porém, ao contrário do que seria expectável, os Julgados de Paz não têm tido os resultados esperados. Por isso, é necessária a reformulação da sua filosofia. 
+Os Julgados de Paz foram criados com o propósito de ali serem julgadas as causas mais simples e, assim, retirar dos tribunais o peso das chamadas bagatelas jurídicas. Porém, ao contrário do que seria expectável, os Julgados de Paz não têm tido os resultados esperados. Por isso, é necessária a reformulação da sua filosofia.
 
 Vamos progressivamente tornar obrigatória a jurisdição dos Julgados de Paz nas matérias para as quais são já competentes – contratos, condomínios, responsabilidade civil, etc, nas causas até 15 mil euros – nos concelhos onde já estejam instalados.
 
@@ -2710,7 +2709,7 @@ A reforma do Código de Processo Civil de 2013 é um marco importante para a jus
 
 #### 5.3.1. Um tribunal mais simples
 
-Queremos rever o Código de Processo Civil para introduzir mecanismos ainda mais ágeis como regime-regra, temperado com as necessárias garantias processuais. Entre outros, propomos: 
+Queremos rever o Código de Processo Civil para introduzir mecanismos ainda mais ágeis como regime-regra, temperado com as necessárias garantias processuais. Entre outros, propomos:
 
 * a) Modificação da estrutura da sentença nas causas mais simples, de modo a permitir a sua prolação imediata e de forma oral, logo depois de terminado o julgamento; a sentença é gravada e transcrita, caso as partes pretendam;
 
@@ -2761,7 +2760,7 @@ Já se avançou muito, mas há ainda uma enorme margem de progressão. Três exe
 
 ### 5.4. Uma justiça transparente, responsável e escrutinável
 
-Num quadro que continue a assegurar a estrita independência dos tribunais, o modelo de governance do sistema judiciário tem de ser fortalecido a partir do único poder que garante isso mesmo - o Presidente da República. 
+Num quadro que continue a assegurar a estrita independência dos tribunais, o modelo de governance do sistema judiciário tem de ser fortalecido a partir do único poder que garante isso mesmo - o Presidente da República.
 
 Esta é a forma mais eficaz de garantir um modelo imparcial e, por via disso, responsabilizável e escrutinável. A par deste reforço, queremos
 garantir que o sistema jurídico-político é totalmente transparente.
@@ -2791,7 +2790,7 @@ costas voltadas para os cidadãos. É preciso reverter tal estado de coisas, sob
 Defendemos uma cultura de respeito pela liberdade de cada um, promoveremos um enquadramento que rejeite a violência e o ódio e a discriminação contra qualquer ser humano em função da ascendência, sexo, raça, língua, território de origem, religião, convicções políticas
 ou ideológicas, instrução, situação económica, condição social ou orientação sexual - em pleno cumprimento do princípio da igualdade.
 
-#### 5.5.2. Assegurar que a justiça penal é eficaz sem compromoter os direitos dos cidadãos 
+#### 5.5.2. Assegurar que a justiça penal é eficaz sem compromoter os direitos dos cidadãos
 
 A legislação penal portuguesa conta mais de 20 anos e está transformada numa verdadeira manta de retalhos. Por isso mesmo, deve ser revista a adequação do atual catálogo de crimes, bem como ponderado o equilíbrio das molduras penais, designadamente entre os crimes contra as pessoas e os crimes económicos. Foi o que tentámos fazer nesta legislatura, e ficámos a falar sozinhos.
 
@@ -2891,7 +2890,7 @@ As pessoas, as famílias e as empresas procuram países que lhes saibam dizer ex
 
 Para que isso seja verdade em Portugal, precisamos de uma reforma da Administração Pública.
 
-Para esse efeito, é um erro encará-la como uma empresa: as empresas possuem os seus próprios processos, adequados ao quadro legal em que se situam, todos eles conducentes, no fim, à obtenção do lucro. Sendo que o lucro é uma finalidade legítima e desejável, a função do Estado é outra: a garantia dos direitos dos seus cidadãos. 
+Para esse efeito, é um erro encará-la como uma empresa: as empresas possuem os seus próprios processos, adequados ao quadro legal em que se situam, todos eles conducentes, no fim, à obtenção do lucro. Sendo que o lucro é uma finalidade legítima e desejável, a função do Estado é outra: a garantia dos direitos dos seus cidadãos.
 
 A reforma que propomos assenta nos seguintes princípios essenciais.
 
@@ -2968,7 +2967,7 @@ Avançaremos com a atribuição ordinária de prémios de desempenho, medidas co
 
 Em qualquer sistema de avaliação que se preze, em qualquer sistema de avaliação que se destine de facto a avaliar para melhorar, uma má avaliação tem consequências: consequências destinadas não a punir mas a incentivar a melhoria. Não é o que atualmente se passa na Administração Pública, em que os funcionários que se esmeram e trabalham e superam terminam no mesmo exato ponto em que os funcionários que não têm o mesmo nível de empenho e produtividade.
 
-Defendemos, sem receio, que na reforma do Sistema de Avaliação da Administração Pública, estava avaliação seja direcionada verdadeiramente para o mérito, individual e coletivo, e não para uma abordagem burocrática nem desmotivadora. 
+Defendemos, sem receio, que na reforma do Sistema de Avaliação da Administração Pública, estava avaliação seja direcionada verdadeiramente para o mérito, individual e coletivo, e não para uma abordagem burocrática nem desmotivadora.
 
 Aos funcionários que tenham mau desempenho e para além da redução da pontuação de mérito já existente ou de eventuais responsabilidades a que haja lugar, deve ser criado e aplicado um plano de qualificação individual adaptado às suas necessidades formativas.
 
@@ -2996,7 +2995,7 @@ Vamos rever as formas de promoção que não atendem a fatores de mérito.
 #### 7.4.7. Serviços bem avaliados devem ter melhores condições
 
 Se, em função da avaliação de cada serviço, se detetar que o mesmo não só cumpre com aquilo que era esperado, mas que ainda para mais o
-serviço superou as expetativas e teve boa avaliação, então é de justiça que o serviço receba uma justa contrapartida, que serve de incentivo, para além da replicação das boas práticas por eles seguidas noutros serviços públicos. 
+serviço superou as expetativas e teve boa avaliação, então é de justiça que o serviço receba uma justa contrapartida, que serve de incentivo, para além da replicação das boas práticas por eles seguidas noutros serviços públicos.
 
 Proporemos assim, na reforma do sistema de avaliação de desempenho da Administração Pública, que este serviço veja reforçada a sua capacidade para adotar medidas em benefício dos seus funcionários, como o aumento de prémios ou outros benefícios.
 
@@ -3024,7 +3023,7 @@ Por imperativo constitucional, e terminada a situação extraordinária de inter
 apenas fazer-se mediante o proporcional aumento do vencimento dos funcionários públicos.
 
 Isto é, tendo em conta a doutrina e jurisprudência constitucional, a reintrodução das 40h determina o correspondente aumento salarial da
-função pública. 
+função pública.
 
 Como o CDS tem repetido, a nossa prioridade, do ponto de vista da folga orçamental, está na redução dos impostos para todos (incluindo-se, claro, os funcionários públicos), e não no aumento de vencimentos da função pública. Preferimos, assim, a redução dos impostos para todos.
 
@@ -3136,7 +3135,7 @@ Propomos uma Estratégia Nacional de Combate à Corrupção e à Criminalidade O
 
 ### 8.1. Sem meios, não há combate que consiga vencer a corrupção
 
-É essencial assegurar o recrutamento contínuo e perene para a Polícia Judiciária e o Ministério Público, a fim de não só serem preenchidos os respetivos quadros – no caso da Polícia Judiciária em quase metade – como também de garantir que as saídas por aposentação ou jubilação são compensadas. A isso acrescem os indispensáveis recursos materiais, em muitos casos inexistentes ou de tal maneira obsoletos que acabam por redundar em nada. 
+É essencial assegurar o recrutamento contínuo e perene para a Polícia Judiciária e o Ministério Público, a fim de não só serem preenchidos os respetivos quadros – no caso da Polícia Judiciária em quase metade – como também de garantir que as saídas por aposentação ou jubilação são compensadas. A isso acrescem os indispensáveis recursos materiais, em muitos casos inexistentes ou de tal maneira obsoletos que acabam por redundar em nada.
 
 ### 8.2. Assessorias especializadas já
 
@@ -3358,7 +3357,7 @@ ponderação orgânica desta força de segurança que liberte efetivos para as m
 
 Deve ser dada particular atenção, e proteção, aos peões e aos utilizadores de veículos de duas rodas que ainda permanecem como os grupos de risco mais expostos à ocorrência de acidentes com vítimas.
 
-Ainda neste contexto, medidas de especial proteção das crianças e dos mais idosos devem ser implementadas como o reforço da visibilidade da sinalética e das passadeiras e a iluminação noturna. 
+Ainda neste contexto, medidas de especial proteção das crianças e dos mais idosos devem ser implementadas como o reforço da visibilidade da sinalética e das passadeiras e a iluminação noturna.
 
 ## 10. PROTEÇÃO CIVIL APETRECHADA PARA COMBATER OS FOGOS FLORESTAIS
 
@@ -3402,7 +3401,7 @@ Queremos rever a Lei de Financiamento das Associações Humanitárias detentoras
 
 ### 10.8. Incentivar o voluntariado
 
-Criaremos o Cartão Social do Bombeiro, com vantagens que incentivem o voluntariado. 
+Criaremos o Cartão Social do Bombeiro, com vantagens que incentivem o voluntariado.
 
 ## 11. UM PAPEL ATIVO NO MUNDO
 
@@ -3586,7 +3585,7 @@ Para esse efeito, poremos em marcha planos específicos e direcionados, tendo em
 
 Apoiaremos o trabalho das várias organizações, públicas, privadas e sociais, que apoiam os refugiados que fogem de ditaduras, guerras ou
 perseguição religiosa. No essencial, Portugal deverá manter o consenso atual em relação a uma política integradora e aberta às migrações de
-refugiados, honrando uma história de acolhimento e integração centrada no humanismo personalista que sempre defendeu e executou. 
+refugiados, honrando uma história de acolhimento e integração centrada no humanismo personalista que sempre defendeu e executou.
 
 ## 13. NÃO HÁ ESTADO SEM DEFESA NACIONAL
 
@@ -3682,7 +3681,7 @@ E a transformação tecnológica e a disrupção da economia digital constituem 
 Preservar os nossos territórios também passa por acrescentar valor aos produtos primários, desenvolvendo uma produção que combine tradição com inovação e acompanhamento das tendências do consumo. Sem essa capacidade, os territórios vão perdendo âncoras de desenvolvimento sem muitas vezes conseguirem criar outras.
 
 Acreditamos por isso profundamente na nossa indústria agroalimentar, cada vez mais profissional, tecnológica, inovadora, competitiva, sustentável e exportadora – um instrumento essencial para a nossa economia, para a fixação de populações, e, nunca esquecer, para a gestão
-ordenada e para a preservação dos nossos territórios. 
+ordenada e para a preservação dos nossos territórios.
 
 ## 3. UM TERRITÓRIO QUE JÁ SENTE OS EFEITOS DAS ALTERAÇÕES CLIMÁTICAS
 
@@ -3715,7 +3714,7 @@ climáticas e a conservação da natureza, há muito por fazer e há muito por a
 
 Acreditamos que o desenvolvimento sustentável é uma responsabilidade de todos, nomeadamente para com as próximas gerações, razão pela qual as opções políticas devem ter em conta o fator ambiental.
 
-Temos de oferecer uma perspetiva económica da proteção ambiental, ciente, sem preconceitos, em que a proteção do ambiente é uma oportunidade e não um encargo. 
+Temos de oferecer uma perspetiva económica da proteção ambiental, ciente, sem preconceitos, em que a proteção do ambiente é uma oportunidade e não um encargo.
 
 Reconhecemos certamente as virtualidades do direito de propriedade e do mecanismo de criação de preços como meio de atingir a proteção do meio ambiente. Estamos vocacionados para encontrar soluções economicamente sustentáveis para os problemas da dependência energética, sempre tendo como objetivo a integração do problema ambiental nas efetivas necessidades da população. Reconhecemos a economia de mercado, devidamente regulada, como o modelo que mais tem favorecido o desenvolvimento de políticas ambientais, estimulando, por isso, a constituição de fundos de investimento que permitam reforçar pela via dos capitais próprios os projetos de natureza empresarial.
 
@@ -3730,7 +3729,7 @@ para as pessoas. Mas que fique claro: não precisamos de mais Estado no interior
 
 De nada servem políticas de alongamento do Estado, quase sempre através de medidas avulsas. Precisamos é de ter uma maior capacidade de atração e fixação de pessoas, bem como um investimento crescente.
 
-Merece aqui especial destaque a política fiscal. 
+Merece aqui especial destaque a política fiscal.
 
 É preciso uma política fiscal que compreenda as necessidades de um interior cheio de dificuldades estruturais, que tenha consequências para as empresas, pessoas e investimento, criando um clima favorável ao desenvolvimento do interior.
 
@@ -3752,7 +3751,7 @@ O interior do país enfrenta desafios tão profundos que será impossível venc�
 
 O interior precisa de mais competitividade, de mais empresas, de mais investimento, e não de mais Estado, mais organismos públicos ou mais planos e programas que nunca saem do papel.
 
-Um estatuto fiscal verdadeiramente ambicioso e competitivo, que o transforme numa verdadeira zona económica especial, tem de ser negociado com Bruxelas, e é isso que nos propomos fazer. 
+Um estatuto fiscal verdadeiramente ambicioso e competitivo, que o transforme numa verdadeira zona económica especial, tem de ser negociado com Bruxelas, e é isso que nos propomos fazer.
 
 Desse estatuto fiscal constam quatro prioridades:
 
@@ -3835,7 +3834,7 @@ universal e não excessivamente dependente de fundos estatais.
 #### 6.2.1. Asseguraremos a boa execução dos fundos comunitários e pagamentos a tempo e horas
 
 Os programas de apoio ao investimento na agricultura (PDR2020) têm taxas de execução muito inferiores ao desejável; há milhares de projetos sem dotação orçamental, em particular no caso dos jovens agricultores, que desempenham um papel relevante na renovação do tecido
-empresarial e contribuem significativamente para a inovação no setor. 
+empresarial e contribuem significativamente para a inovação no setor.
 
 É fundamental garantir o uso eficaz dos fundos comunitários e efetuar os pagamentos de forma atempada e previsível, quer os destinados a apoiar o rendimento dos agricultores, exclusivamente financiados pela UE, quer os de apoio ao investimento, concentração da oferta e rejuvenescimento do setor, assegurando a realização de controlos rigorosos, atempados e eficazes que evitem futuras correções financeiras
 por parte da UE.
@@ -4319,7 +4318,7 @@ Para o efeito, queremos tornar obrigatória a comparação de soluções alterna
 
 Consideramos que se devem abrir em definitivo as zonas ribeirinhas à população, promovendo a gestão das áreas não portuárias pelos municípios, havendo ainda que definir planos de transferência gradual das atividades portuárias do interior das cidades.
 
-### 7.5. Investir na capacidade aeroportuária e nas ligações regionais 
+### 7.5. Investir na capacidade aeroportuária e nas ligações regionais
 
 A realidade aeroportuária nacional tem sido uma das preocupações do país, quer do ponto de vista da segurança nacional, quer do ponto de
 vista da captação turística. Ainda assim, e fugindo um pouco às questões de carácter reativo, o país tem de pensar de forma estratégica as
@@ -4333,7 +4332,7 @@ O aeroporto de Lisboa tem um “hub” de enorme dimensão e é o aeroporto com 
 Quanto ao novo aeroporto, estamos onde sempre estivemos. O anterior Governo, do qual o CDS fez parte, e assumiu responsabilidades, deixou trabalho feito no sentido da solução que, após quatro anos, o Governo se lembrou de anunciar.
 
 Queremos, no entanto, deixar claro que, para o CDS, a criação de um aeroporto complementar tem de ser objeto de uma avaliação pública,
-participada e ponderada – não só do ponto de vista ambiental como também do ponto de vista de viabilidade económica e financeira. 
+participada e ponderada – não só do ponto de vista ambiental como também do ponto de vista de viabilidade económica e financeira.
 
 #### 7.5.2. Mobilidade aérea regional
 
@@ -4391,7 +4390,7 @@ O mercado das Green Bonds é ainda limitado, mas tem sido impulsionado por insti
 É preciso, por isso, que o processo legislativo e regulatório em matéria ambiental seja mais transparente e participado cientificamente,
 reformando-se o processo de consulta e participação pública do enquadramento legislativo e regulatório.
 
-Propomos igualmente que a avaliação do impacto de cada investimento no combate e mitigação das alterações climáticas esteja devidamente publicitado. 
+Propomos igualmente que a avaliação do impacto de cada investimento no combate e mitigação das alterações climáticas esteja devidamente publicitado.
 
 ### 8.7. Mais informação para melhor cidadania
 
@@ -4409,7 +4408,7 @@ Propomos a criação de um centro de divulgação e informação, eficaz e funci
 
 ### 8.8. O Estado tem de dar o exemplo
 
-O Estado não pode aprovar legislação nem obrigações nem restrições que, depois, é o primeiro a incumprir enquanto todos os restantes são penalizados e censurados. O Estado deve ser impedido de aprovar legislação que o isente, assim como deve ser impedido de aprovar legislação que imponha obrigações ou prazos que este não está em condições de cumprir. 
+O Estado não pode aprovar legislação nem obrigações nem restrições que, depois, é o primeiro a incumprir enquanto todos os restantes são penalizados e censurados. O Estado deve ser impedido de aprovar legislação que o isente, assim como deve ser impedido de aprovar legislação que imponha obrigações ou prazos que este não está em condições de cumprir.
 
 ### 8.9. Cidades inteligentes
 
@@ -4558,7 +4557,6 @@ Depois de Portugal ter investido na descarbonização da oferta de energia elét
 
 Dinamizaremos programas de financiamento que promovam a eficiência energética e as de energias renováveis na construção e renovação de edifícios, bem como a aquisição e substituição de equipamentos obsoletos por outros energeticamente mais eficientes, estimulando soluções de autoconsumo que permitam suprir picos de consumo de energia.
 
-
 ### 10.9. Interligações Energéticas
 
 Aprofundaremos a integração dos mercados ibéricos, tanto da energia elétrica como do gás natural, através do aumento da capacidade de
@@ -4624,7 +4622,7 @@ Defendemos o desenvolvimento do cluster da Economia Azul, endereçando toda a ca
 
 * e) engenharia e serviços náuticos (atividades de inspeção, conservação, reparação e abastecimento das embarcações);
 
-* f) ambiente e energia (p.e. dessalinização da água e energia eólica offshore); 
+* f) ambiente e energia (p.e. dessalinização da água e energia eólica offshore);
 
 * g) educação e desporto (de forma a proporcionar uma rede de educação para o desporto náutico);
 
@@ -4684,6 +4682,6 @@ muitas zonas costeiras. Também aqui importa ter em conta a dimensão sempre pre
 
 Proteger a costa e garantir rios e mar saudáveis devem ser dois grandes objetivos que cruzam o ambiente com a agenda azul.
 
-Devemos priorizar estes domínios e ambicionar liderar em tudo o que tenha a ver com a despoluição dos rios e do mar, criando e consolidando também por esta via o papel de líderes na agenda da sustentabilidade do mar. 
+Devemos priorizar estes domínios e ambicionar liderar em tudo o que tenha a ver com a despoluição dos rios e do mar, criando e consolidando também por esta via o papel de líderes na agenda da sustentabilidade do mar.
 
 Os rios internacionais, como o Tejo, devem ser alvo de particular atenção e monitorização. Símbolo, também, do seu compromisso ambiental, Portugal, através da comunidade estuarina, deve empenhar-se numa candidatura do estuário do Tejo a património da humanidade.

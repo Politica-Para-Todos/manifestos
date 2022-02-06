@@ -43,7 +43,7 @@ O Partido RIR apresenta assim a sua proposta de Programa Político, a pensar em 
 * Redefinição da política de arborização com especial enfoque no abate abusivo de árvores;
 * Educar para uma melhor forma de olhar os animais;
 * Combate ao Abandono - sinalização e criação de mecanismos de acompanhamento real;
-* O Povo e o Ambiente estão antes do Lítio! Somos contra esta exploração; 
+* O Povo e o Ambiente estão antes do Lítio! Somos contra esta exploração;
 
 ## **Agricultura, Florestas e Desenvolvimento Rural**
 
@@ -62,7 +62,7 @@ O Partido RIR apresenta assim a sua proposta de Programa Político, a pensar em 
 * Fim da utilização dos meios de comunicação de serviço público para a emissão de espetáculos que envolva o maltrato a animais;
 * Criação de programas nacionais de âmbito cultural que permitam fomentar a língua e a cultura portuguesa;
 * Cooperação entre Ministérios da educação/cultura para incentivo e formação cultural;
-* Linguagem gestual em todos os canais de televisão; 
+* Linguagem gestual em todos os canais de televisão;
 * Aprovar a linguagem gestual como língua oficial Portuguesa;
 * Incentivar a produção literária Portuguesa;
 * Promover uma bolsa de artes para jovens artistas;
@@ -80,7 +80,7 @@ O Partido RIR apresenta assim a sua proposta de Programa Político, a pensar em 
 * Cumprir escrupulosamente o Estatuto das forças armadas de forma a dignificar o papel dos militares;
 * Repensar as missões militares no estrangeiro em termos estratégicos;
 * Reorganizar as Forças Armadas em termos operacionais, logísticos e estratégicos;
-* Apostar na profissionalização das Forças Armadas; 
+* Apostar na profissionalização das Forças Armadas;
 
 ## **Educação**
 
@@ -99,7 +99,7 @@ O Partido RIR apresenta assim a sua proposta de Programa Político, a pensar em 
 * Inclusão dos Educadores Sociais em Creches, Infantários, Lares e Centro de Dia;
 * Incluir os Educadores Socias no Acompanhamento Emocional aos Professores, Auxiliares de Ação Direta, Auxiliares de Educação (etc);
 * A Escola deve ser o Centro da Vida Educativa no nosso País;
-* Revisão das bolsas de mérito. 
+* Revisão das bolsas de mérito.
 
 ## **Finanças**
 
@@ -118,7 +118,7 @@ O Partido RIR apresenta assim a sua proposta de Programa Político, a pensar em 
 * Combater as injustas e inadequadas Isenções Fiscais em Fundações, Partidos Políticos, Banca, Fundos de Investimento;
 * Fim das “Parcerias Público-Privadas” é urgente e necessário para se defender o Erário Público;
 * Transferência para a zona da “carteira de atividades exportadoras“ de atividades residindo presentemente na esfera das não transacionáveis;
-* Rápido enriquecimento da “carteira de atividades exportadoras“ assente na atração de investimento direto estrangeiro e consolidado pelo crescimento das PME´ S Portuguesas; 
+* Rápido enriquecimento da “carteira de atividades exportadoras“ assente na atração de investimento direto estrangeiro e consolidado pelo crescimento das PME´ S Portuguesas;
 
 ## **Infraestruturas e Habitação**
 
@@ -138,7 +138,7 @@ Redução de taxas portuárias e criar no Porto de Sines uma grande porta de Ent
 * Todas as paragens de autocarros devem ter um sistema de voz a indicar a chegada dos meios de transporte;
 * Todos serviços públicos e não só devem ter acesso a pessoas com deficiência;
 * Investimento público nas várias infraestruturas do Estado que estão degradadas;
-* Estamos contra a localização do Novo Aeroporto no Montijo. Defendemos outras Localizações, como por exemplo, Alcochete, Beja, Monte Real, etc. 
+* Estamos contra a localização do Novo Aeroporto no Montijo. Defendemos outras Localizações, como por exemplo, Alcochete, Beja, Monte Real, etc.
 
 ## **Justiça**
 
@@ -169,7 +169,7 @@ existência de ex- membro ou membro dessa no exercício de funções públicas;
 * Implementar uma Cultura de Responsabilização onde os Magistrados, quando cometem um erro grave de julgamento, têm de indemnizar o lesado;
 * Todo aquele que exerce um cargo público deve fazê-lo em exclusividade;
 * Baixar significativamente as custas judiciais acabando de vez com a justiça dos ricos e a injustiça dos pobres;
-* Rever a Tabela de Honorários dos advogados que fazem apoio jurídico; 
+* Rever a Tabela de Honorários dos advogados que fazem apoio jurídico;
 * Dotar todos setores da justiça com meios e funcionários suficientes para que a justiça seja mais eficaz e muito mais célere;
 * Inclusão de Educadores Sociais nas Instituições Prisionais – O recluso deve ter acompanhamento psicossocial e um plano de reinserção social para se reintegrar novamente na sociedade;
 * Criação da Lei sobre Agressão Intrafamiliar;
@@ -184,7 +184,7 @@ existência de ex- membro ou membro dessa no exercício de funções públicas;
 * Ter empresas nacionais responsáveis pelas dragagens e não recorrer como atualmente a empresas estrangeiras;
 * Tornar mais frequentes as ligações via FERRY às Ilhas da Madeira e Açores;
 * Exigir a nível comunitário uma maior cota para o pescado na nossa costa, aproveitando a nossa posição geográfica a nível de mar;
-* Promover ações de limpeza nas praias nacionais e eliminar os plásticos na nossa Orla Costeira; 
+* Promover ações de limpeza nas praias nacionais e eliminar os plásticos na nossa Orla Costeira;
 
 ## **Modernização Administrativa**
 
@@ -245,7 +245,7 @@ existência de ex- membro ou membro dessa no exercício de funções públicas;
 * Taxar os cuidados de saúde animal, serviços de bem-estar e produtos de ordem alimentar ou medicamentosa animal à taxa reduzida de IVA;
 * Dentistas no Serviço Nacional de Saúde;
 * Exclusividade de médicos e enfermeiros com contrapartida remuneratória;
-* Defendemos um “Sistema Integrado de Prestação de Cuidados de Saúde” que ofereça aos seus utentes o acesso a um médico por família, que deve trabalhar em regime de exclusividade para o Estado;  
+* Defendemos um “Sistema Integrado de Prestação de Cuidados de Saúde” que ofereça aos seus utentes o acesso a um médico por família, que deve trabalhar em regime de exclusividade para o Estado;
 * Avaliar as parcerias público–privadas na área da Saúde;
 * Reforço do atendimento em Centros de Saúde para libertar hospitais;
 * Urgências graves devem estar isentas da taxa moderadora e das taxas moderadoras dos exames complementares de diagnóstico;
@@ -296,7 +296,7 @@ Horas extraordinárias pagas em banco de horas devem ser por opção e não impo
 * Alterar a Lei do Estatutos das IPSS no que concerne às Eleições dos Corpos Dirigentes;
 * Idade da Reforma igual no Privado e no Público;
 * Aumento das reformas e pensões mais baixas;
-* Acabar com os 3 dias de carência das Baixas por doença e toda a medicação e exames complementares de diagnóstico referente à causa da baixa que devem ser gratuitos.  
+* Acabar com os 3 dias de carência das Baixas por doença e toda a medicação e exames complementares de diagnóstico referente à causa da baixa que devem ser gratuitos.
 
 # **CONCLUSÃO**
 
@@ -306,4 +306,4 @@ Horas extraordinárias pagas em banco de horas devem ser por opção e não impo
 
 ## **ESTAMOS JUNTOS!**
 
-## **RIR é Política à Séria!** 
+## **RIR é Política à Séria!**

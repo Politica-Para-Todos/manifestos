@@ -305,7 +305,6 @@ O Ministério do Ambiente legislou recentemente sobre estas matérias, regulando
 	* Melhoria de processos industriais
 	* Software de gestão de água
 
-
 4.  Incentivar a reutilização de águas residuais das ETAR e de águas pluviais tratadas, utilizando-as para os fins adequados tendo em conta o respetivo nível de tratamento
 
    a) Apoiar os investimentos das ETAR em tratamento de água que permita a sua utilização para nomeadamente rega, lavagem de ruas e usos industriais, evitando assim a necessidade de utilizar água potável.
@@ -380,7 +379,6 @@ A redistribuição de riqueza tem um mecanismo específico, que se chama IRS. A 
 Não deveria o valor do ISP, por exemplo, estar também incluído neste bolo associado à fiscalidade verde? Permitiria uma devolução muito superior e passaria um sinal muito maior a favor da transição energética.
 
 O ISP é um imposto que, embora possa ser visto como moderador do consumo e com uma componente ambiental, é acima de tudo uma muito importante fonte de receita do Estado (cerca de 6% do total) e tem sido utilizada indiscriminadamente pelos Governos. É precisamente este fim que pretendemos evitar com a devolução da Fiscalidade Verde.
-
 
 ### **1.2.1 PRODUÇÃO DESCENTRALIZADA**
 **1.2.1 Produção descentralizada**
@@ -676,7 +674,6 @@ Não, de todo. O que se propõe não é eliminar a taxa de carbono nem incentiva
 
 # **2. ECONOMIA E FINANÇAS**
 
-
 ### **2.1.1 ALTERAÇÃO DE IMT E IMI**
 
 **2.1.1 Alteração do Imposto Municipal sobre Transmissões (IMT) e do Imposto Municipal sobre Imóveis (IMI)**
@@ -689,7 +686,6 @@ No que concerne ao IMI, o mesmo deve ser liberalizado no que ao valor da taxa di
 1.  Eliminar o pagamento do IMT sempre que esteja em causa a aquisição de uma 1ª habitação com vista a ser usada como habitação própria e permanente, permitindo deste modo reduzir o custo do acesso à habitação por parte da totalidade dos portugueses.
 
 2.  Quanto ao IMI pretende-se com esta medida fazer do IMI um imposto verdadeiramente municipal, dotando-o de maior flexibilidade em termos de valor de taxa, incidência da mesma em termos de tipologia de uso do imóvel e de sua localização no Município.
-
 
 ## B. Racional
 
@@ -874,7 +870,6 @@ Com esta proposta, será sempre devido imposto, mas a liquidação do mesmo, ou 
 
 2.  quando o resultado bruto for positivo, mas inferior ao imposto apurado. Neste último caso, líquida o valor equivalente ao resultado bruto, e o remanescente será liquidado em ano posterior.
 
-
 ### **2.1.4 MUDAR O RECIBO VENCIMENTO**
 **2.1.4 Mudar o Recibo Vencimento**
 ## A. Objetivos
@@ -1016,7 +1011,6 @@ Estas medidas servem para promover uma maior repartição de riscos macroeconóm
 **Porquê introduzir uma componente obrigatória de capitalização, nos moldes propostos?**
 
 É importante assegurar que o sistema de pensões não depende de uma única fonte de financiamento, como forma de mitigação de risco. É também importante promover a poupança, como forma de promover o investimento.
-
 
 ### **2.2.1 INTRODUÇÃO DE UMA TAXA FIXA SOBRE TODOS OS RENDIMENTOS DE 15%**
 
@@ -1347,9 +1341,7 @@ Vamos ser o país mais atrativo para os acionistas da OCDE.
 
 Vamos alterar os termos de competitividade fiscal do país: Passaremos a tributar pela nacionalidade ou na residência do investidor e não pelo local onde foi criado o valor. Pode parecer injusto, mas a forma fiscal é a única forma de um país periférico competir e compensar o facto de estar longe do centro da europa. Longe dos principais mercados.
 
-
 _⁷“http://info.portaldasfinancas.gov.pt/pt/dgci/divulgacao/estatisticas/Pages/default.aspx_
-
 
 ### **2.2.5 PRIVATIZAÇÃO DA CAIXA GERAL DE DEPÓSITOS**
 
@@ -1842,7 +1834,6 @@ Não. A legislação publicada é medíocre e traduz uma visão centralista e ir
 
 2.  Fazer depender o financiamento de uma escola do tipo de escola, pública ou privada, e alunos admitidos.
 
-
 ## B. Racional
 
 1.  No que respeita ao acesso a uma escola pública, é essencial conceder liberdade de escolha a alunos e famílias. Alunos e famílias deverão poder exercer os critérios de escolha que considerem mais apropriados, como conveniência logística, reputação do estabelecimento e qualidade dos professores, entre outros.
@@ -1850,7 +1841,6 @@ Não. A legislação publicada é medíocre e traduz uma visão centralista e ir
 2.  A educação é um direito consagrado em lei até à maioridade dos jovens que frequentemente coincide com a conclusão do 12º ano de escolaridade. Neste período de escolaridade obrigatória, Educação deve ser financiada através dos impostos entregues pelos cidadãos ao Estado.
 
 3.  Defende-se um modelo em que o financiamento entregue às escolas esteja correlacionado com o tipo de escola, pública ou privada, e alunos admitidos, de acordo com a metodologia expressa na Medida 2 abaixo.
-
 
 ## C. Proposta
 
@@ -1875,7 +1865,6 @@ O financiamento proposto tem a vantagem de premiar as escolas públicas mais esc
 **Como se deve processar a inclusão de alunos com necessidades especiais?**
 
 Os alunos com necessidades especiais devem ser enquadrados na escola de uma forma que atenda à gravidade das suas necessidades. Se essas necessidades foram compatíveis com um ritmo normal de aprendizagem – por exemplo, se forem de natureza motora – então os alunos devem ser incluídos em turmas normais. Se, por outro lado, as necessidades especiais não forem compatíveis com um ritmo normal de aprendizagem – por exemplo, se forem de natureza cognitiva ou comportamental – então esses alunos devem ser inscritos em turmas especiais lideradas por professores e outros profissionais devidamente habilitados para lidar com essas limitações. Cada escola deve ter a liberdade de definir as melhores condições de aprendizagem para os seus alunos.
-
 
 ### **3.3 REFORMULAÇÃO DAS CARREIRAS DAS IES**
 
@@ -1944,7 +1933,6 @@ Os alunos com necessidades especiais devem ser enquadrados na escola de uma form
 21. Atualmente, há bolseiros de investigação e bolseiros de doutoramento, sendo que muitos bolseiros de investigação são também estudantes de doutoramento, que são financiados de projeto em projeto durante o tempo que fazem o doutoramento. Esta situação deverá, tendencialmente, passar para uma situação de contrato de trabalho (à semelhança do sistema holandês), desde logo pela discriminação existente no tratamento da Banca (ex: acesso ao crédito à habitação, cartão de crédito), e porque, no enquadramento do Código do Trabalho, é possível contratar a termo ou a termo incerto. Frequentemente, estes investigadores estão a colmatar necessidades de investigação permanentes (a prova disso é a sua contratação no financiamento plurianual das unidades de investigação FCT).
 
 22. À semelhança do sistema inglês, defende-se a existência de duas carreiras separadas - uma para docentes, uma para investigadores, que efetivamente funcionem de forma distinta e com avaliação distinta. Devem ainda prever-se a existência de carreiras de profissionais de interface à ciência (comunicação de ciência e transferência de conhecimento), bem como a existência de uma carreira de administração de IES (à semelhança da existência da carreira de administração hospitalar).
-
 
 _¹⁵Ver https://www.publico.pt/2019/06/02/sociedade/noticia/metade-professores-superior-avaliacao-excelente-1874993. Apenas 5% têm negativa e mais de metade é excelente._
 _¹⁶Vide Gráfico 39 em http://www.dgeec.mec.pt/np4/206/%7B$clientServletPath%7D/?newsId=11&fileName=IPCTN17_Destaques_Resultados_Setor_
@@ -2087,10 +2075,8 @@ Não. Os fins do ensino superior público podem ser prosseguidos de modos difere
 
 10. Para os estudantes, eles sabem que apenas serão aceites num curso, numa determinada universidade. Não há qualquer hipótese de serem aceites em diferentes universidades e depois decidir para onde ir, tendo em consideração a oferta de alojamento, as condições da IES, políticas de bolsas (por insuficiência económica e/ou mérito), entre outros
 
-
 _¹⁸Exceptuam-se os “concursos locais”, meramente residuais no panorama nacional_
 _¹⁹Por exemplo: https://bmcmededuc.biomedcentral.com/articles/10.1186/s12909-018-1162-x (embora o principal objectivo do estudo seja a avaliação do desempenho de estudantes provenientes de escolas públicas vs. estudantes provenientes de colégios privados, tendo como base a amostra da FMUP)_
-
 
 ## C. Proposta
 
@@ -2152,10 +2138,8 @@ _¹⁹Por exemplo: https://bmcmededuc.biomedcentral.com/articles/10.1186/s12909-
 
 14. É ainda de salientar que, na sua maioria, as unidades de I&D com melhores classificações em sede de avaliação FCT, e com mais produção científica por investigador são os Laboratórios Associados, tendo estas entidades maior massa crítica de investigadores
 
-
 _²⁰http://info.portaldasfinancas.gov.pt/pt/informacao_fiscal/codigos_tributarios/bf_rep/Pages/ebf-artigo-62-ordm-a.aspx (Art.º 62º-A)_
 _²²https://www.fct.pt/apoios/unidades/laboratoriosassociados_
-
 
 ## C. Proposta
 
@@ -2497,8 +2481,6 @@ Que por sua vez podia deverá ser multiplicada pelas redes acima apresentadas.
 
 	b) No geral, os portugueses concordam com uma contribuição individual para criar um seguro de saúde estatal. Porém, o Relatório final da comissão para a sustentabilidade do SNS alerta, fundamentado nos valores atribuídos pelos inquiridos sobre despesas per capita, que a larga maioria não tem consciência dos valores que poderão estar em jogo, e que se forem confrontados com quantias concretas poderão recuar drasticamente na concordância.
 
-
-
 _²⁶https://dre.pt/application/dir/pdf1s/1979/09/21400/23572363.pdf_
 _²⁶https://www.parlamento.pt/Legislacao/Paginas/Leis_area_saude.aspx_
 _²⁶Veja-se por exemplo esta deliberação:_
@@ -2510,7 +2492,6 @@ _²⁶Veja-se por exemplo esta deliberação:_
 _²⁶Atualmente não há verdadeiros subsistemas; já que estes não são paralelos²⁶https://www.tcontas.pt/pt/actos/rel_auditoria/2016/2s/rel008-2016-2s_v1.pdf_
 
 _³¹O que é um sistema (central, seguro ou subsistema) de saúde – do ponto de vista de um cliente?_
-
 
 ## C. Proposta
 
@@ -3367,7 +3348,6 @@ Sim. Embora a solução proposta tenha a vantagem de promover a legalidade, a co
 
 Não. Por definição, toda a Administração Pública tem por missão executar políticas públicas, pelo que, por essa ordem de ideias, todos os funcionários da Administração Pública deveriam ser nomeados com base na confiança política. Ora, com exceção das funções do Estado que, de acordo com a Constituição, implicam o exercício de competências políticas (ministro, secretário de estado, etc.), todos os outros cargos da Administração Pública são de perfil essencialmente técnico, não existindo, por isso, justificação válida para que os titulares de alguns desses cargos sejam nomeados politicamente – qual é a função política desempenhada por um administrador da Caixa Geral de Depósitos (ou pelo seu Presidente)? Qual é a função política de um administrador de um hospital público? Qual é a função política do presidente da Autoridade Tributária, ou da Autoridade de Proteção Civil?
 
-
 _⁶²http://www.legislation.gov.uk/ukpga/2010/25/pdfs/ukpga_20100025_en.pdf_
 _⁶³https://www.regjeringen.no/globalassets/upload/fad/vedlegg/lonns--og-personalpolitikk/ledelsesplattform_eng.pdf_
 
@@ -3800,7 +3780,6 @@ Mesmo considerando que não se verifica uma homogeneidade entre as Secretarias G
 
 11. Melhorar a forma como se governa, como se definem as políticas e como se comunica com os cidadãos e as organizações.
 
-
 _⁷⁵A Transformação Digital do Estado não termina com uma iniciativa. É algo que tem que estar no ADN do próprio Estado, quer na elaboração de políticas, quer na sua implementação. Daí que, na nossa opinião, não faz sentido usarmos as palavras Transformação ou Modernização no nome da Agência já que estas pressupõem uma ação limitada no tempo._
 _⁷⁶Quando fizermos o uso da palavra “Administração”, estamos a referir-nos à Administração Central, Regional e Local, bem como Institutos, Empresas ou Agências Públicas, etc._
 _⁷⁷Por Organizações entende-se empresas, instituições, associações, etc._
@@ -4039,7 +4018,6 @@ _⁹⁴https://www.oecd.org/gov/digital-government/recommendation-on-digital-gov
 _⁹⁶https://www.oecd.org/going-digital/strengthening-digital-government.pdf,⁹⁶https://ec.europa.eu/newsroom/dae/document.cfm?doc_id=3179_
 _⁹⁷Há 542 benefícios fiscais em Portugal. Mas 127 não se sabe para que servem. https://eco.sapo.pt/2019/06/17/ha-542-beneficios-fiscais-em-portugal-mas-127-nao-se-saber-para-que-servem_
 
-
 ### **7.7 TRANSPARÊNCIA E GARANTIA DE TRATAMENTO IMPARCIAL PELA ADMINISTRAÇÃO PÚBLICA**
 
 **7.7 Transparência e garantia de tratamento imparcial pela administração pública**
@@ -4258,7 +4236,6 @@ Sem dúvida. É para isso que servem as subvenções partidárias (atribuídas m
 
 5.  Até ser reposto o desvio, manter-se-iam os cortes automáticos e os quadros superiores do serviço central e local não poderiam receber aumentos salariais, progressões de carreira ou qualquer tipo de bónus de desempenho. Ambos também estariam vedados de contratar pessoal.
 
-
 ## D. Questões frequentes
 
 **Como seriam contabilizados custos de transição?**
@@ -4348,7 +4325,6 @@ Este é efetivamente um risco da passagem para um sistema uninominal, mas a verd
 **O que impede os candidatos dos círculos uninominais de continuarem a ser selecionados pelos diretórios partidários?**
 
 Tecnicamente, nada. Mas os eleitores poderão castigar diretamente aqueles candidatos que achem que não os representam. Atualmente, um candidato de um grande partido colocado no topo da lista num grande círculo tem eleição garantida, mesmo com um mau resultado do seu partido. Esse candidato não obtém o seu cargo pela escolha do eleitorado, mas sim pela escolha do líder partidário que o colocou naquele lugar da lista. Com este sistema, um mau candidato poderia não ser eleito, mesmo que o seu partido tivesse um bom resultado eleitoral global. Isto também obrigaria a um cuidado adicional na escolha de todos os candidatos.
-
 
 ### **8.4 ALTERAÇÃO À LEI DO FINANCIAMENTO DOS PARTIDOS POLÍTICOS**
 
@@ -4899,8 +4875,6 @@ Já na Alemanha é uma grande Fundação, financiada pelo Governo Federal e pelo
 **Estamos a falar de aumento da esfera do Estado, com a criação de novas entidades Públicas?**
 
 Não. O que estamos a propor é uma conversão ou uma transformação das entidades existentes, jamais a criação de novas entidades públicas.
-
-
 
 ### **10.2 PRIVATIZAÇÃO DA RTP E ABERTURA TDT**
 

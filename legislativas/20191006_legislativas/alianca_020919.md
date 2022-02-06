@@ -1,69 +1,68 @@
-# POR UM PAÍS ÀS DIREITAS. UM COMPROMISSO COM PORTUGAL!
-A emergência de novas forças políticas no panorama político nacional apenas faz sentido se acompanhada por uma nova Atitude. Uma Atitude baseada na apresentação de um caminho claro que coloque o País a crescer e a aproximar-se dos níveis de vida dos seus congéneres europeus. Uma Atitude baseada na defesa intransigente dos interesses dos Portugueses e no combate à pobreza e à exclusão social, causas sistémicas de um conjunto de problemas que impedem a efetiva coesão social e territorial.
+# POR UM PAÍS ÀS DIREITAS. UM COMPROMISSO COM PORTUGAL!
 
-Importa libertar os Portugueses da asfixia partidária em que o País se afundou nos últimos 45 anos e das amarras da Frente de Esquerda, permitindo que novas forças políticas, com projetos credíveis e sustentados em propostas concretas, se afirmem na construção de um novo caminho, assente no crescimento, na liberdade, na justiça, na solidariedade e tendo sempre presente uma matriz humanista e personalista.
+A emergência de novas forças políticas no panorama político nacional apenas faz sentido se acompanhada por uma nova Atitude. Uma Atitude baseada na apresentação de um caminho claro que coloque o País a crescer e a aproximar-se dos níveis de vida dos seus congéneres europeus. Uma Atitude baseada na defesa intransigente dos interesses dos Portugueses e no combate à pobreza e à exclusão social, causas sistémicas de um conjunto de problemas que impedem a efetiva coesão social e territorial.
 
-Por um País assente no mérito. Um País onde todos contam, e ninguém fica para trás. Somos a Alternativa democrática, patriótica e responsável a esta Frente de Esquerda. O nosso projeto é Refundar para Defender Portugal!
+Importa libertar os Portugueses da asfixia partidária em que o País se afundou nos últimos 45 anos e das amarras da Frente de Esquerda, permitindo que novas forças políticas, com projetos credíveis e sustentados em propostas concretas, se afirmem na construção de um novo caminho, assente no crescimento, na liberdade, na justiça, na solidariedade e tendo sempre presente uma matriz humanista e personalista.
 
-Por Portugal. Por um País às Direitas. Um País onde valha a pena estudar e trabalhar! Temos a plena convicção de que Portugal é Melhor! Portugal Pode Muito Mais!
+Por um País assente no mérito. Um País onde todos contam, e ninguém fica para trás. Somos a Alternativa democrática, patriótica e responsável a esta Frente de Esquerda. O nosso projeto é Refundar para Defender Portugal!
 
-O **PROGRAMA BASE** que propomos reflete as causas, princípios e valores fundacionais da *ALIANÇA* mas pretende ser um **documento colaborativo**, que permita a todas e todos os que acreditam em Portugal, e não se sentem representados por este Governo de esquerda, a participação ativa **fazendo-nos chegar as vossas propostas para que as possamos estudar e incluir no nosso Programa**, cuja versão final apenas será fechada no dia 6 de Setembro.
+Por Portugal. Por um País às Direitas. Um País onde valha a pena estudar e trabalhar! Temos a plena convicção de que Portugal é Melhor! Portugal Pode Muito Mais!
 
+O **PROGRAMA BASE** que propomos reflete as causas, princípios e valores fundacionais da *ALIANÇA* mas pretende ser um **documento colaborativo**, que permita a todas e todos os que acreditam em Portugal, e não se sentem representados por este Governo de esquerda, a participação ativa **fazendo-nos chegar as vossas propostas para que as possamos estudar e incluir no nosso Programa**, cuja versão final apenas será fechada no dia 6 de Setembro.
 
-# OUSAMOS A DIFERENÇA PORQUE ACREDITAMOS EM PORTUGAL E NOS PORTUGUESES
-A Aliança é um partido Personalista, Liberal e Solidário.
+# OUSAMOS A DIFERENÇA PORQUE ACREDITAMOS EM PORTUGAL E NOS PORTUGUESES
 
-As pessoas e a dignidade do ser humano são o centro e o fim último de todas as
+A Aliança é um partido Personalista, Liberal e Solidário.
+
+As pessoas e a dignidade do ser humano são o centro e o fim último de todas as
 nossas propostas.
 
-A *ALIANÇA*, desde a sua fundação, reclama como desígnios fundamentais o **crescimento económico** como instrumento essencial para alcançar o **progresso**, a **igualdade, a justiça, a coesão social e territorial e o combate à pobreza**.
+A *ALIANÇA*, desde a sua fundação, reclama como desígnios fundamentais o **crescimento económico** como instrumento essencial para alcançar o **progresso**, a **igualdade, a justiça, a coesão social e territorial e o combate à pobreza**.
 
 Apostamos na defesa intransigente dos interesses dos Portugueses assente em 3 grandes **CAUSAS TRANSVERSAIS**:
 
-- COMBATE À POBREZA E À EXCLUSÃO SOCIAL 
-- CRESCIMENTO ECONÓMICO
-- COESÃO TERRITORIAL
+- COMBATE À POBREZA E À EXCLUSÃO SOCIAL
+- CRESCIMENTO ECONÓMICO
+- COESÃO TERRITORIAL
 
-Nesse sentido, a *ALIANÇA* delineou o seu **PROGRAMA ELEITORAL** com os seguintes pressupostos:
+Nesse sentido, a *ALIANÇA* delineou o seu **PROGRAMA ELEITORAL** com os seguintes pressupostos:
 
-- A **Pessoa** no centro de todas as medidas e decisões (matriz personalista).
-- Liberdade de Escolha / **Liberdade** Económica.
-- Honradez / **Honestidade** / Ordem / Segurança.
+- A **Pessoa** no centro de todas as medidas e decisões (matriz personalista).
+- Liberdade de Escolha / **Liberdade** Económica.
+- Honradez / **Honestidade** / Ordem / Segurança.
 - **Iniciativa Provada**/Empresas e Sociedade Civil- motores da atividade económica e social
-- **Diminuição da Despesa do Estado** – um Estado eficiente e que atue onde é verdadeiramente necessário.
-- Criação de **mais riqueza** – condição para se atingir o nível de vida médio europeu.
-- Princípio da solidariedade e da **inclusão social**.
-- Moralização e **qualificação** do sistema político.
-- Sistema de ensino assente na exigência e nos desafios das **novas tecnologias**.
-- **Coesão territorial** (equilíbrio e equidade na gestão do território).
-- **Iniciativa privada** e empresas – motores da atividade económica.
+- **Diminuição da Despesa do Estado** – um Estado eficiente e que atue onde é verdadeiramente necessário.
+- Criação de **mais riqueza** – condição para se atingir o nível de vida médio europeu.
+- Princípio da solidariedade e da **inclusão social**.
+- Moralização e **qualificação** do sistema político.
+- Sistema de ensino assente na exigência e nos desafios das **novas tecnologias**.
+- **Coesão territorial** (equilíbrio e equidade na gestão do território).
+- **Iniciativa privada** e empresas – motores da atividade económica.
 - **Maior punição social e legal** para crimes mais graves (homicídio, violação, violência doméstica, corrupção).
 
-**Não aceitamos** que cerca de 3 milhões de Portugueses – repetimos 3 milhões – vivam sem dignidade, sem conforto e sem bens essenciais, já para não falar de tantos outros com emprego que vivem em pobreza envergonhada.  
+**Não aceitamos** que cerca de 3 milhões de Portugueses – repetimos 3 milhões – vivam sem dignidade, sem conforto e sem bens essenciais, já para não falar de tantos outros com emprego que vivem em pobreza envergonhada.
 
-**Não aceitamos** que pessoas dependentes, como os mais velhos, sejam abandonados, agredidos e maltratados, sem que lhes seja dado o apoio devido em fim de vida.
+**Não aceitamos** que pessoas dependentes, como os mais velhos, sejam abandonados, agredidos e maltratados, sem que lhes seja dado o apoio devido em fim de vida.
 
-**Não aceitamos** que pessoas com deficiência ou em situações de dependência, sejam excluídas a qualquer título e que não sejam dados os devidos apoios que lhes permitam a sua plena integração.
+**Não aceitamos** que pessoas com deficiência ou em situações de dependência, sejam excluídas a qualquer título e que não sejam dados os devidos apoios que lhes permitam a sua plena integração.
 
-**Não aceitamos atrasos no pagamento das reformas** ou nas prestações sociais.
+**Não aceitamos atrasos no pagamento das reformas** ou nas prestações sociais.
 
-Queremos um **SNS requalificado e eficiente**, assente na liberdade de escolha para todos os Portugueses, seja através da generalização dos seguros de saúde, seja através da abertura da ADSE. Um sistema onde coabitem públicos, privados e terceiro setor, que aumentem a oferta e contribuam para a sua qualidade. Sem listas de espera, sem adiamentos de cirurgias e serviços fechados.
+Queremos um **SNS requalificado e eficiente**, assente na liberdade de escolha para todos os Portugueses, seja através da generalização dos seguros de saúde, seja através da abertura da ADSE. Um sistema onde coabitem públicos, privados e terceiro setor, que aumentem a oferta e contribuam para a sua qualidade. Sem listas de espera, sem adiamentos de cirurgias e serviços fechados.
 
-Por sermos intransigentes neste combate pelas pessoas, também elegemos como causa transversal o **crescimento económico** e a criação de um ambiente propício ao investimento, com uma fiscalidade estável e atrativa, com redução de impostos para pessoas e empresas, com uma justiça mais célere e com processos transparentes.
+Por sermos intransigentes neste combate pelas pessoas, também elegemos como causa transversal o **crescimento económico** e a criação de um ambiente propício ao investimento, com uma fiscalidade estável e atrativa, com redução de impostos para pessoas e empresas, com uma justiça mais célere e com processos transparentes.
 
-Só assim se criará riqueza e se conseguirá a tão necessária **redução da carga fiscal para as famílias e empresas**. Também por isso defendemos uma nova atitude na Europa que nos faça convergir com a média do pib per capita dos outros países, que canalize todos os fundos no apoio ao crescimento, nas empresas e no aumento da nossa competitividade, designadamente através de investimento público nas infraestruturas portuárias, ferroviárias e aeroportuárias.
+Só assim se criará riqueza e se conseguirá a tão necessária **redução da carga fiscal para as famílias e empresas**. Também por isso defendemos uma nova atitude na Europa que nos faça convergir com a média do pib per capita dos outros países, que canalize todos os fundos no apoio ao crescimento, nas empresas e no aumento da nossa competitividade, designadamente através de investimento público nas infraestruturas portuárias, ferroviárias e aeroportuárias.
 
 Não queremos ser uma ilha na Europa, quando devemos ser a sua principal porta de entrada, capitalizando a nosso favor o investimento estrangeiro.
 
-**Queremos** um país **uno, coeso**, do norte ao sul, do interior ao litoral e nas Regiões Autónomas, promovendo a coesão territorial a que associaremos políticas demográficas e fiscais combinadas com a descentralização de competências e desconcentração de serviços.
+**Queremos** um país **uno, coeso**, do norte ao sul, do interior ao litoral e nas Regiões Autónomas, promovendo a coesão territorial a que associaremos políticas demográficas e fiscais combinadas com a descentralização de competências e desconcentração de serviços.
 
-**Queremos** uma nação mais jovem, mais saudável, mais culta e qualificada. Que desde cedo, na escola, seja incentivada a ter **vidas saudáveis**, a praticar deporto e a dedicar-se à cultura e às artes, num modelo educativopluridisciplinar que aposte no **desenvolvimento pessoal, criativo e empreendedor**.
+**Queremos** uma nação mais jovem, mais saudável, mais culta e qualificada. Que desde cedo, na escola, seja incentivada a ter **vidas saudáveis**, a praticar deporto e a dedicar-se à cultura e às artes, num modelo educativopluridisciplinar que aposte no **desenvolvimento pessoal, criativo e empreendedor**.
 
-Queremos uma sociedade onde as gerações mais jovens se interessem pelos grandes temas da atualidade, motivando-os a participar na construção de uma **sociedade mais preparada e inclusiva**, assente em bons valores e tentar reverter assim a mediocridade em que está imersa a atividade política.
+Queremos uma sociedade onde as gerações mais jovens se interessem pelos grandes temas da atualidade, motivando-os a participar na construção de uma **sociedade mais preparada e inclusiva**, assente em bons valores e tentar reverter assim a mediocridade em que está imersa a atividade política.
 
-**Queremos** um país exemplar no **combate às alterações climáticas e na defesa do ambiente**, através da descarbonização progressiva, da aposta na economia circular e na adoção de um novo paradigma de consumo mais sustentável que evite o desperdício e privilegie a reutilização.
-
-
+**Queremos** um país exemplar no **combate às alterações climáticas e na defesa do ambiente**, através da descarbonização progressiva, da aposta na economia circular e na adoção de um novo paradigma de consumo mais sustentável que evite o desperdício e privilegie a reutilização.
 
 **PORTUGAL,** não conseguiu, na últimas décadas, transformar a estrutura da sua economia. Na verdade, são mais de 30 anos de integração europeia com mais de 130 mil milhões de euros de fundos europeus e, não obstante, Portugal vai ficando para trás, na comparação com os outros Estados-Membros, sobretudo com os mais recentes, que partindo duma situação bem mais frágil, em vários domínios, conseguiram afirmar as suas economias e ultrapassar Portugal.
 
@@ -97,7 +96,6 @@ E, ainda assim, este _deficit_ é conseguido com uma carga fiscal que atingiu o 
 
 Precisamos de um **Pacto Nacional para o Crescimento** que seja imune às oscilações do poder. Portugal precisa de criar mais riqueza, de produzir mais e melhor. Precisamos igualmente de mais investimento público de modo a criar melhores condições para uma efetiva competitividade da nossa economia, designadamente:
 
-
 **O investimento na ferrovia** , como forma de facilitar o tráfego interno, as ligações à Europa e aos portos de mar com redução do impacto ambiental;
 
 **A reestruturação do Estado** , concertada com uma nova ocupação do território por pessoas, serviços públicos, bens e equipamentos e descentralização para os Municípios;
@@ -111,7 +109,6 @@ Precisamos de um **Pacto Nacional para o Crescimento** que seja imune às oscila
 **Uma nova e libertadora política fiscal,** mais simples e com mais estabilidade, como fator decisivo para a dinamização do investimento privado, nacional e estrangeiro.
 
 A ALIANÇA entende que a necessidade de mais recursos financeiros não resulta apenas das insuficiências da nossa economia. Há muito trabalho a fazer na organização dos serviços públicos, principalmente na área da Saúde, que carece de um **funcionamento em rede de base distrital** com unidades bem apetrechadas, em equipamentos e recursos humanos, aos vários níveis dos cuidados, desde os primários até aos continuados e paliativos e contando com a “capacidade instalada” dos setores privado e social.  Para além de outras medidas na Política de Saúde, defendemos a generalização dos seguros, que contribuam para o financiamento do SNS, usufruindo da partilha do risco e proporcionando a liberdade de escolha dos cidadãos e assumindo o esforço financeiro necessário para dotar o País dessa rede. A ALIANÇA defende a negociação com entidades externas, de um **Plano Estrutural de Desenvolvimento, congregador de fundos europeus** — agora distribuídos por oito eixos — e todo ele orientado para o crescimento real da nossa economia de modo a podermos alcançar, tão rápido quanto possível, as médias europeias. Precisamos de uma cultura de ambição com metas e objetivos bem escalonados no tempo e precisamos de uma cultura de gestão eficiente orientada para o longo-prazo.
-
 
 Fazemos parte de uma União Monetária composta por Estados com níveis de desenvolvimento muito diversos, tendo alienado parte dos instrumentos de soberania também no domínio da política económica e financeira.
 
@@ -129,10 +126,9 @@ A ALIANÇA **defende que é este o caminho que o centro-direita deve seguir**. N
 
 Queremos continuar no projeto Europeu mas Portugal **deve exigir uma posição e uma intervenção reparadora, com equidade e justiça e com a razão e a força que a nossa identidade** , a nossa cultura, a nossa história e a nossa localização geopolítica nos permite reclamar, sem cerimónia e sem timidez!
 
-
 Portugal tem o direito de reclamar a compensação dos custos da localização periférica da nossa economia Uma economia que cedeu à força dos grandes Países da Europa e internalizou as desvantagens competitivas das nossas empresas e dos nossos produtos, submetendo-se a maior dependência externa e contribuindo para o crescimento do produto e da riqueza dos parceiros europeus.
 
-**Não podemos continuar a aceitar uma economia de baixos salários** , pouco exigente e excessivamente resignada. Está na hora de Portugal decidir e agir, mudando a sua maneira de estar e os termos do seu relacionamento. Só assim conseguiremos mais Progresso para o nosso País e mais Justiça para o nosso Povo.
+**Não podemos continuar a aceitar uma economia de baixos salários** , pouco exigente e excessivamente resignada. Está na hora de Portugal decidir e agir, mudando a sua maneira de estar e os termos do seu relacionamento. Só assim conseguiremos mais Progresso para o nosso País e mais Justiça para o nosso Povo.
 
 **As regras e as políticas europeias não podem mudar apenas quando não servem os interesses dos mais fortes,** como é o caso alemão. Não foi para isso que nasceu o projeto Europeu e, sobretudo, a importância relativa dos Estados Membros não pode ser subjugada apenas à força do poder económico.
 
@@ -144,7 +140,6 @@ Queremos uma Europa mais coesa e mais solidária. **A solidariedade, a defesa do
 
 **O Projeto Europeu não pode ser pervertido** pela supremacia material de uns Estados perante outros. Sem a correção das assimetrias entre as economias dos diferentes Estados, o comboio pode descarrilar de vez. Seja por onde for que o comboio passe, a bitola das linhas tem de ser equivalente, ou sai mesmo tudo dos carris. A ALIANÇA quer que a coesão económica e social seja posta em prática e que seja respeitado o direito de os portugueses terem o nível de vida médio dos cidadãos europeus.
 
-
 # TRAVES MESTRAS
 
 ### SAÚDE
@@ -155,16 +150,15 @@ O acesso à Saúde não é igual para todos os Portugueses. Uns podem escolher o
 
 A **_ALIANÇA_** defende a reorganização do Setor da Saúde de forma a transitar para um modelo assente na universalidade do seguro de saúde, incluindo a possibilidade de alargar a ADSE, a novos subscritores, com o objetivo de garantir a igualdade e celeridade de acesso a todos os Portugueses.
 
-
 - Universalização dos seguros de saúde liberdade de escolha, responsabilizando- se o Estado pelo pagamento do prémio de seguro às pessoas que se encontram isentas de IRS.
 
-- O Seguro de Saúde terá um pacote base de coberturas, podendo ser maximizado por opção de cada cidadão. 
+- O Seguro de Saúde terá um pacote base de coberturas, podendo ser maximizado por opção de cada cidadão.
 
 - A semelhança dos prestadores privados, os prestadores públicos serão pagos pelos serviços de saúde prestados a coberto do seguro de saúde.
 
 - Proteção da propriedade individual de dados de saúde, recorrendo à tecnologia Blockchain.
 
-- Aposta na contratualização com as entidades públicas e privadas, com vista à disponibilidade do melhor serviço. 
+- Aposta na contratualização com as entidades públicas e privadas, com vista à disponibilidade do melhor serviço.
 
 - Forte impulso à medicina preventiva, como forma de evitar a doença e à divulgação de um plano nacional de hábitos saudáveis.
 
@@ -182,11 +176,9 @@ De acordo com as estimativas do INE, em 2033, a população Portuguesa deverá f
 
 A **_ALIANÇA_** propõe:
 
-
 - Redução do IRS em função do número de filhos;
 - Isenção do IMT na aquisição de primeira habitação para jovens até aos 30 anos ou casais com uma média de idade até aos 35 anos;
 - Aumento das deduções das despesas de saúde e educação em sede de IRS; Mais apoio às Famílias com filhos portadores de deficiência; Criação de mais equipamentos para a primeira infância em articulação com as Autarquias e o terceiro sector, alargando a rede de ATL.
-
 
 ### COESÃO TERRITORIAL, DESCENTRALIZAÇÃO E FERROVIA
 **PORTUGAL SOMOS TODOS**
@@ -213,8 +205,7 @@ Queremos enfrentar e contrariar a desertificação, o despovoamento do territór
 
 A corrupção e o mau funcionamento da Justiça são ingredientes cuja combinação é fatal e está na origem da decadência da nossa Democracia e na falta de Liberdade que os Portugueses sentem, seja no acesso aos seus direitos, seja na incapacidade de reagir perante um Estado excessivo e opressivo. Assim é imperativo:
 
-
-- Promover a transparência no Estado, adotando modelos abertos de governação e colaborativos que permitam aos cidadãos participar nas decisões políticas de que são destinatários e monitorizar todas as fases dos processos decisórios; 
+- Promover a transparência no Estado, adotando modelos abertos de governação e colaborativos que permitam aos cidadãos participar nas decisões políticas de que são destinatários e monitorizar todas as fases dos processos decisórios;
 
 - Garantir que todas as grandes obras, investimentos públicos, autorizações ou licenças para o desenvolvimento de determinadas atividades industriais/comerciais em áreas estratégicas, ou de interesse nacional, são fundamentadas, atestando a relação custo/benefício e sendo, devidamenteacompanhadas, pelos estudos económico e financeiros, de impacto ambiental e do seu contributo para a coesão territorial;
 
@@ -227,7 +218,6 @@ dinheiros públicos;
 
 - Controlo mais exigente da aplicação dos fundos comunitários.
 
-
 ### CRESCIMENTO
 
 **E COMPETITIVIDADE**
@@ -235,7 +225,6 @@ dinheiros públicos;
 As reduzidas taxas de crescimento da economia Portuguesa, a baixa produtividade, o fenómeno da redução da natalidade, o aumento da esperança de vida são fatores quepõem em risco a sustentação, a curto médio/ prazo, do Estado Social que tanto queremos preservar.
 
 Entre 2001 e 2007 Portugal teve o pior nível de investimento da zona euro, o que foi agravado pela crise internacional a partir de 2008. De acordo com as estatísticas da AMECO o investimento real em Portugal foi negativo, - 1,4% ao ano entre 2001/2007 e de - 3,2% entre 2008/2016. Só o crescimento nos pode salvar e por isso a **_ALIANÇA_** propõe:
-
 
 - Margens orçamentais utilizadas para desonerar as famílias e as empresas;
 - Combate à economia de baixos salários;
@@ -262,13 +251,11 @@ mimetizando o mau exemplo, pela assunção de que tudo vale. Propomos:
 
 - Eleições à quinta-feira para combater a abstenção.
 
-
 ### RECIPROCIDADE
 **PARA COM O ESTADO**
 
-
 O Estado Social que tanto queremos preservar e os modelos de redistribuição vigentes
-para acudir às mais diversas situações de carência não têm só virtudes. É próprio da maturidade destas políticas gerarem, inadvertidamente, fenómenos de dependências injustificadas e abusos no acesso aos apoios sociais que, em última análise são pagos pelos contribuintes. A **_ALIANÇA_** entende que se deve rever o modelo e condições de atribuição do RSI de forma a garantir a eficácia social do mesmo e a justa reciprocidade na sua atribuição, assim propõe: 
+para acudir às mais diversas situações de carência não têm só virtudes. É próprio da maturidade destas políticas gerarem, inadvertidamente, fenómenos de dependências injustificadas e abusos no acesso aos apoios sociais que, em última análise são pagos pelos contribuintes. A **_ALIANÇA_** entende que se deve rever o modelo e condições de atribuição do RSI de forma a garantir a eficácia social do mesmo e a justa reciprocidade na sua atribuição, assim propõe:
 
 - Quem recebe RSI deve prestar algum serviço à comunidade;
 - Maior transparência e controlo na atribuição dos subsídios do Estado;
@@ -337,7 +324,6 @@ A **_ALIANÇA_** adotará medidas de inclusão social no sentido de promover a i
 
 O Combate à pobreza e à exclusão social são uma causa transversal da **_ALIANÇA_** , balizando as seguintes medidas que elencamos como prioritárias:
 
-
 - Princípio de liberdade de escolha, que permita mais descontos para sistemas complementares alternativos ao sistema público;
 
 - Apoios de renda e cobertura integral dos medicamentos prescritos pelos médicos de família a quem viva abaixo do limiar de pobreza e tenha mais de 65 anos;
@@ -354,7 +340,6 @@ O Combate à pobreza e à exclusão social são uma causa transversal da **_ALIA
 
 - Adoção de soluções digitais que aumentem o acesso ao sistema financeiro por parte de muitos cidadãos atualmente sem acesso a serviços bancários.
 
-
 ### MAR, INOVAÇÃO E CULTURA
 **TRINÓMIO FUNDACIONAL DA ALIANÇA**
 
@@ -362,10 +347,9 @@ O Mar é o maior ativo natural estratégico português e está subaproveitado. A
 
 É com o sentido da sua preservação e proteção, mas também da sua valorização e aproveitamento estratégico que a **_ALIANÇA_** encara este trinómio, como fonte de riqueza nacional, pelo que a **_ALIANÇA_** propõe:
 
-
 - Aposta na exploração dos recursos marinhos existentes na ZEE Portuguesa, no pleno respeito pelo Ambiente;
 
-- Aposta nas novas tecnologias e nas sinergias entre Universidades/Centros de 
+- Aposta nas novas tecnologias e nas sinergias entre Universidades/Centros de
 
 - Investigação e Universidades;
 
@@ -406,7 +390,6 @@ Portugal e o mundo estão confrontados com um dos maiores desafios de sempre. Os
 
 - A Aliança propõe ainda, face aos perigos e incertezas que abalam o Mundo em termos ambientais, a criação de uma nova Autoridade que seja o garante da proteção da natureza: O PROVEDOR DA NATUREZA, DA FAUNA E DA FLORA e DOS ECOSSISTEMAS NACIONAIS.
 
-
 ### PORTUGAL NO CONTEXTO GLOBAL
 **DO PROJETO EUROPEU À LUSOFONIA**
 
@@ -432,21 +415,17 @@ Também a defesa das comunidades portuguesas, espalhadas pelos cinco continentes
 
 - Valorização da Língua Portuguesa como elo unificador e potenciador da “marca” Portugal.
 
-
 O presente exige esta nova Atitude. A **_ALIANÇA_** sabe que a sociedade está em transição
 para novas formas de organização, com a edificação de uma sociedade cada vez mais
 preocupada com a cibersegurança e a proteção de dados pessoais dos cidadãos, sendo
 que neste processo as novas tecnologias terão um papel essencial.
 
-
 # PROGRAMA ELEITORAL
-
-
 
 # CAPITULO I
 # CRESCIMENTO, COMPETITIVIDADE E TERRITÓRIO
 
-### ECONOMIA E EMPRESAS  
+### ECONOMIA E EMPRESAS
 Portugal tem vindo a cair no ranking das economias europeias tendo passado do 17º lugar para 21º entre 2004 e 2018 (pib per capita) em consequência de um tímido crescimento económico e por uma evolução demográfica que acentua as dificuldades de sustentação do Estado Social que é nosso desígnio preservar.
 
 Quanto ao investimento direto estrangeiro, que representa uma média de 4,8% no PIB entre 2010 e 2015, foi de apenas 2.1%. em 2018.
@@ -483,12 +462,11 @@ A *ALIANÇA* defende, com convicção, que Portugal pode crescer muito mais e at
 
 + Promover o aumento do peso das exportações no PIB, orientando-as para mercados mais exigentes que requerem uma capacidade produtiva mais sofisticada e complexa apromovendo uma diferenciação positiva, acedendo a mercados em que a qualidade e a excelência não está ao alcance de todos.
 
-+ Promover a dinamização do tecido empresarial sobretudo nas indústrias de bens transacionáveis, com intensidade tecnológica, através de uma forte ligação entre as PME e os centros de investigação e universidades, concorrendo massivamente aos Fundos e Instrumentos Financeiros da União Europeia (política interna), que historicamente são pouco aproveitados pela nossa Economia. 
++ Promover a dinamização do tecido empresarial sobretudo nas indústrias de bens transacionáveis, com intensidade tecnológica, através de uma forte ligação entre as PME e os centros de investigação e universidades, concorrendo massivamente aos Fundos e Instrumentos Financeiros da União Europeia (política interna), que historicamente são pouco aproveitados pela nossa Economia.
 
 + Promover uma estratégia de diversificação do tecido empresarial em sectores produtivos estratégicos com elevada componente tecnológica, com financiamento atrativo e com recurso a fundos da EU.
 
 ### COMPETITIVIDADE E MODERAÇÃO FISCAL
-
 
 A *ALIANÇA* defende que o Sistema Fiscal Português deve ser revisto e sujeito a um acordo pluripartidário que lhe garanta estabilidade num tempo longo.
 
@@ -528,7 +506,6 @@ De acordo com os rankings da OCDE, Portugal tem das taxas de IRS mais altas. E s
 
 Como incentivar os contribuintes a ambicionar mais, a constituir família, a manter níveis razoáveis de consumo e ainda poupar, se mais de metade do rendimento do seu trabalhoé para entregar ao Estado? E quando, adicionalmente, o Estado não retribui com a qualidade exigível o acesso à Saúde restantes serviços essenciais?
 
-
 A *ALIANÇA* não se conforma com esta estrutura de tributação do trabalho e, por isso, defende e vai fazer um estudo aprofundado desta realidade no sentido de propor:
 
 + A revisão dos escalões de IRS, aumentando o número e/ou alargando os seus limites e garantindo uma efetiva progressividade que contemple a realidade económica e social do País.
@@ -563,14 +540,11 @@ A *ALIANÇA* entende que se deverá voltar a discutir a redução gradual do IMT
 
 Em resumo, o sistema fiscal deve ponderar inovação e estabilidade porque sem previsibilidade, não há confiança nem sustentabilidade.
 
-
 E a justiça fiscal tem que ser efetiva: quando o Estado persegue, através da sua máquina
 fiscal, a liberdade e credibilidade de cada cidadão e de cada empresa, então há que
 alterar as regras.
 
-
 ### O MAR
-
 
 Portugal detém uma das maiores Zonas Económicas Exclusivas do Mundo, sendo a 20ª com 1.727.408 km2, possuindo também a 15ª maior área SAR (Safe&Rescue) com cerca de 5 milhões de km2.
 
@@ -594,16 +568,13 @@ Neste enquadramento, a *ALIANÇA* aponta algumas medidas:
 
 + Aprofundar o potencial do Mar no domínio das energias renováveis, ligada ao aproveitamento das ondas que, sendo viáveis, deverão prosseguir de forma planeada e sustentável, com total respeito pelo ambiente, contribuindo para o aumento da riqueza nacional e para a diminuição da dependência energética do país.
 
-
 + Proteger o mar e os recursos marinhos adotando uma estratégia de valorização ambiental que intensifique a despoluição dos oceanos e a preservação da fauna arítima, começando por reduzir a quantidade de plástico nos oceanos, visto que 80% do lixo marinho tem essa proveniência e prosseguir políticas de educação e sensibilização ambiental que induzam a adoção de novos comportamentos, designadamente: evitar descargas poluentes de qualquer tipo; contribuir para a limpeza das praias e adotar o uso de materiais descartáveis ou biodegradáveis, entre outros.
 
 + Defender as zonas costeiras e as suas populações protegendo-as da erosão, do aumento do nível das águas do mar e das alterações climáticas, envolvendo a Administração Regional e Local, as Autoridades Marítimas e a Proteção Civil naelaboração dos instrumentos adequados de ordenamento, preventivos e repressivos, que definam zonas de risco e planos de atuação e salvaguarda, para além da natural proibição de construir em zonas protegidas e/ou de risco.
 
 + Impor a criação de uma Zona ECA ao largo da nossa costa, por razões ambientais, de combate à poluição, bem como a imposição do chamado “Cold Iron” em relação a Navios de Cruzeiro atracados nos nossos portos, impedindo a utilização dos respetivos motores. Isto, sem prejudicar o funcionamento dos seus sistemas internos que precisam de eletricidade a qual deve passar a ser recebida diretamente de terra, eliminando assim grande parte da poluição advinda dos motores em funcionamento que utilizam combustível.
 
-
 ### COESÃO TERRITORIAL
-
 
 Portugal é dos países da União Europeia que regista maiores assimetrias regionais. Cerca de 60% da população residente no continente português vive na faixa costeira até 25 km,
 
@@ -623,7 +594,6 @@ As políticas da *ALIANÇA* para esta causa assentarão nas seguintes medidas:
 
 + O Estado, através das instituições públicas responsáveis pela angariação do investimento externo – AICEP – deve considerar, cada vez mais, na negociação das contrapartidas do investimento estrangeiro a sua localização no território, induzindo assim políticas inclusivas para os territórios menos populosos e mais esquecidos.
 
-
 + Criar políticas incentivadoras do investimento no interior, seja através da afetação privilegiada dos fundos comunitários a projetos dinamizadores e sustentáveis, seja através da captação de investimento externo com incorporação de mão-de-obra qualificada, por forma a criar âncoras de desenvolvimento nas economias locais desses territórios que criem emprego, gerem riqueza e fixem pessoas.
 
 + Articular estas políticas com as Autarquias Locais, definindo as medidas e incentivos que se adequem a cada região, tendo em conta as suas particularidades, e que contribuam para a facilitação da instalação de atividades económicas e industriaisconcedendo especiais condições fiscais, promovendo economias locais fortes e a criação de emprego.
@@ -637,7 +607,6 @@ As políticas da *ALIANÇA* para esta causa assentarão nas seguintes medidas:
 + Defender a autossustentabilidade das localidades do Interior, garantindo às populações, a prestação dos serviços públicos essenciais, seja na saúde, na educação, na segurança e na proteção civil.
 
 + Reforçar benefícios fiscais para empresas e famílias que se fixem nas regiões do interior.
-
 
 ### AGRICULTURA E FLORESTAS
 
@@ -680,9 +649,7 @@ agricultores, com base nas seguintes propostas:
 
 + Manter a sustentabilidade ambiental como transversal as todas as políticas implementadas e a implementar para o setor agrícola.
 
-
 ### TURISMO
-
 
 Portugal tem conquistado os melhores e maiores galardões internacionais no setor do Turismo, sendo sucessivamente reconhecido como o melhor destino turístico, prémios que se estendem à várias cidades do Continente e Ilhas, o que tem contribuído para o crescimento sucessivo das receitas deste setor.
 
@@ -693,7 +660,6 @@ Este setor representou em 2018 18,6% das exportações portuguesas e 5 2 % das e
 De acordo com a Organização Mundial do Turismo, o setor tem sido fundamental para a recuperação da economia portuguesa, contribuindo para o crescimento das exportações e para a criação de emprego, sendo que um em cada cinco empregos é gerado pelo Turismo.
 
 Com este enquadramento e atendendo a que é um setor com forte contributo na economia portuguesa, mas sujeito a variáveis de contexto internacional, é fundamental apostar numa estratégia que potencie e consolide o Turismo, assegurando a sua sustentabilidade no futuro, designadamente:
-
 
 + Dotar o País de infraestruturas aeroportuárias capazes de darem resposta à procura. Em 2017 Portugal perdeu um milhão de turistas, por falta de capacidade do Aeroporto de Lisboa. É urgente e de interesse nacional o alargamento desta infraestrutura, bem como a otimização do Aeroporto de Monte Real, designadamente para o turismo religioso e do Aeroporto de Beja, com contributo indireto para a Coesão territorial.
 
@@ -708,7 +674,6 @@ Com este enquadramento e atendendo a que é um setor com forte contributo na eco
 + Promover o turismo de saúde e de bem-estar através da reabilitação das zonas termais oferendo produtos de reabilitação física cada vez mais procurados e em que Portugal tem vantagens comparativas reconhecidas e inegáveis.
 
 ### URBANISMO E ORDENAMENTO
-
 
 A *ALIANÇA* defende uma política de urbanismo e do ordenamento do território nacional capaz de reverter as práticas nefastas das últimas décadas, resolvendo a divisão entre Litoral e Interior, o crescente processo de desertificação, a adoção de medidas descentralizadoras e a requalificação do espaço público.
 
@@ -730,11 +695,9 @@ A *ALIANÇA* assume um conjunto de propostas que serão referência na construç
 
 + Habitação, a justiça urbana e a integração social. Apesar dos benefícios que o turismo traz à economia do país, e das cidades históricas em particular, há que garantir que estes não se tornem fatores de exclusão social e abandono das cidades, lançando-as ao uso de populações flutuantes e deixando-as à mercê de interesses especulativos. As políticas têm que acautelar a fixação das populações nos centros históricos e nos bairros tradicionais, através de programas de apoio e da utilização do património público edificado.
 
-
 + As Regiões Autónomas dos Açores e da Madeira, corpos inalienáveis da identidade nacional, merecem o aprofundamento do instituto da autonomia governativa e administrativa, combatendo s constrangimentos da insularidade, com estratégias de organização do território adaptadas, e reforçando a ligação umbilical com o Continente e garantindo a sua mobilidade a custo comportável.
 
 ### OBRAS PÚBLICAS E TRANSPORTES
-
 
 A *ALIANÇA* defende uma política de obras públicas e transportes que garanta as adequadas e necessárias infraestruturas, para o desenvolvimento do País, projetadas para um horizonte de médio longo-prazo, concertadas num plano de compromisso pluripartidário, que impossibilite, no futuro, as aventuras, por vezes, irresponsáveis feitas ao longo das últimas décadas, utilizando o erário público conforme vontades, conveniências, interesses, calendários ou caprichos.
 
@@ -743,7 +706,6 @@ A *ALIANÇA* rejeita em absoluto que as obras estruturantes do País possam ser 
 A *ALIANÇA* defende as seguintes propostas políticas:
 
 + A aposta na Ferrovia. Depois de décadas de investimento em infraestruturação rodoviária, a qual incentivou e proporcionou a mobilidade em transporte automóvel individual, deve retomar-se a rede ferroviária nacional, regional, suburbana ou metropolitana.
-
 
 + O transporte ferroviário é não só ambientalmente mais sustentável, como tem, ao nível da coesão territorial, um efeito agregador, fruto de uma distribuição espacial que só um desenho em rede garante.
 
@@ -755,7 +717,6 @@ A *ALIANÇA* defende as seguintes propostas políticas:
 
 + A *ALIANÇA* defende políticas de planeamento da conservação preventiva permanente dos equipamentos públicos, colmatando o desgaste próprio da sua utilização e aumentando o prazo de vida útil dos mesmos, evitando investimentos novos e precoces decorrentes do seu uso. Este é um tema económico, mas também ambiental que deve ser adotado e praticado em todas as infraestruturas e equipamentos de utilização pública.
 
-
 ### AMBIENTE E ALTERAÇÕES CLIMÁTICAS
 
 O Ambiente é um valor inestimável que tem de ser abordado numa perspetiva integrada e transversal, assumida com responsabilidade, em todas as decisões políticas setoriais e de forma muito participativa por parte de todos os Portugueses.
@@ -765,7 +726,6 @@ Portugal e o mundo estão confrontados com um dos maiores desafios de sempre. No
 As alterações climáticas, traduzidas em frequentes inundações, furacões, amplitudes térmicas e outros fenómenos, têm causado enormes prejuízos ao País pela destruição de património edificado, indústrias, comércio e explorações agrícolas, estimando-se os custos incorridos, desde a década de 80, em cerca de 7 biliões €. Trata-se de um fenómeno global, de dimensões imprevisíveis, mas com consequências certas, na subida do nível do mar, na redução das reservas de água, na extinção de espécies animais e vegetais, entre muitas outras.
 
 Portugal se bem que pouco contribua para o fenómeno, atendendo à sua dimensão, será tão afetado nas consequências como qualquer outro país devendo, também por isso, assumir um papel de responsabilidade e de relevância na adoção de políticas e comportamentos, que contribuam para contrariar o processo de agravamento do aquecimento global.
-
 
 A redução da emissão dos gases, com efeito de estufa, é uma prioridade científica, por ser uma das origens do continuado aumento das temperaturas, resultantes do modo de vida que adotamos, no modo e na forma como interagimos com a natureza, como nos afirmamos como ser humanos na sociedade e até decorrente da nova ordem económica, a era da globalização.
 
@@ -805,7 +765,6 @@ A *ALIANÇA* defende a adoção de políticas e medidas de ação prioritárias 
 
 + Promover num prazo curto um plano de desmaterialização dos processos nas Empresas, Serviços e Administração Pública de forma a reduzir drasticamente o consumo desnecessário de papel.
 
-
 + Valorizar os recursos naturais num quadro de desenvolvimento agrícola e florestal com a adequada conservação da natureza e a gestão integrada das zonas costeiras.
 
 + Conciliar a atividade das unidades de produtivas com a conservação e proteção do Ambiente, fazendo cumprir toda a legislação ambiental, preventivamente, seja na aplicação e controlo dos normativos legais para o tratamento e destino final dos resíduos indústrias.
@@ -821,7 +780,6 @@ A *ALIANÇA* defende a adoção de políticas e medidas de ação prioritárias 
 A competitividade das empresas Portuguesas e o rendimento disponível das famílias depende do acesso universal a energia elétrica, a preços justos e sustentáveis em termos económicos e ambientais respeitando o equilíbrio intergeracional, ou seja, não adiando para as gerações futuras, o custo financeiro das políticas presentes.
 
 A União Europeia definiu como meta, a redução das emissões de gases com efeito de estufa, até 2050, para um nível 80% inferior aos verificados em 1990. Portugal, tem o objetivo de alcançar a neutralidade carbónica até 2050 garantindo, em simultâneo, a qualidade no transporte e distribuição de energia e a segurança no aprovisionamento energético e com preços eficientes, que não comprometam a competitividade das empresas.
-
 
 Este objetivo só será possivel com a conversão das atuais tecnologias para soluções livres de emissões de gases com efeito estufa (conversão das atuais centrais de produção a carvão e gás natural) para tecnologias de produção mais limpas e a descarbonização do setor dos transportes, com a conversão gradual para veículos elétricos.
 
@@ -897,10 +855,8 @@ A *ALIANÇA* defende as seguintes medidas para as políticas públicas de empreg
 
 + Incentivar nas Empresas e no Estado à requalificação dos jovens e trabalhadores promovendo a sua adequação e competências às necessidades do posto de trabalho, desencorajando o desemprego.
 
-
 # CAPITULO II
 # POLÍTICAS SOCIAIS E DE BEM ESTAR
-
 
 ### UM SISTEMA DE PROTEÇÃO DA SAÚDE
 
@@ -994,7 +950,7 @@ Portugal tem que ter políticas de longo prazo, para responder a estas situaçõ
 
 + Implementar um sistema integrado (justiça, serviços sociais e saúde) de apoio às situações de violência doméstica.
 
-+ Rever o IRS considerando a totalidade dos dependentes (ascendente ou descendente) no cômputo do rendimento tributável por pessoa. 
++ Rever o IRS considerando a totalidade dos dependentes (ascendente ou descendente) no cômputo do rendimento tributável por pessoa.
 
 Portugal tem 1,2 milhões de idosos que vivem sós ou em companhia exclusiva de idosos e, de acordo com um estudo publicado pela OMS, e para nossa desonra, Portugal encontra-se em 5º lugar, num ranking de 59 Países, que classifica o modo como cada os País tratam indevidamente os seus idosos.
 
@@ -1018,7 +974,6 @@ A *ALIANÇA* aborda o envelhecimento da população com três principais preocup
 
 + Disseminar práticas que previnam e garantam a integridade física e mental do idoso de forma a reduzir drasticamente os maus tratos aos idosos que se estima abranger cerca de 39% do universo.
 
-
 ### SEGURANÇA SOCIAL
 
 A Segurança Social na vertente do acesso à reforma no fim da vida profissional constitui uma grande e fundada preocupação dos Portugueses, pelo receio de que o sistema não consiga assegurar pensões, consentâneas com o rendimento disponível que tiveram no ativo.
@@ -1028,7 +983,6 @@ A *ALIANÇA* afirma que, se nada mudar, se nada se fizer é certo que serão as 
 O relatório de Sustentabilidade da Segurança Social contido no Orçamento de Estado para 2019 prevê, que a SS apresente saldos negativos na década de 20 e prevê também o esgotamento do Fundo de Estabilidade Financeira, na década de 40, o que se nos afigura otimista, já que muitos especialistas o preveem já na década de 30.
 
 E estas previsões assentam em pressupostos otimistas porque assumem na projeção: a) a estabilidade do peso relativo da receita de contribuições, nas receitas totais; b) no reforço das consignações das receitas fiscais de IMI e IRC, ou seja, o reforço do financiamento a partir, mais uma vez e apenas do Orçamento de Estado que, como bem sabemos tem sido, uma ilusão cativada.
-
 
 A crise económica que abalou Portugal, recentemente, deve ser uma lição de fundo, para todos nós, mas, sobretudo, tem que estar presente, nas ações e decisões políticas daqueles que tem a responsabilidade de Governar.
 
@@ -1054,7 +1008,6 @@ A *ALIANÇA* defende a necessidade de um acordo político para a revisão da arq
 
 + Um modelo que preserve o alicerce público, mas que seja fortemente impulsionador da responsabilidade e da poupança conjugando virtuosamente a vontade e iniciativa das pessoas, famílias, empresas, partilhando a cobertura dos riscos associados ao futuro.
 
-
 + A instituição de um regime de reformas parciais, a partir da idade de acesso à reforma, que permita a manutenção no mercado de trabalho a tempo parcial, aliviando a pressão financeira sobre a SS e, em simultâneo, dando oportunidade da saída progressiva do mercado de trabalho.
 
 + Atualização/Revisão dos acordos de cooperação entre o Instituto de Segurança Social e as IPSS.
@@ -1069,14 +1022,13 @@ Por último, registar, a mais flagrante demonstração, da desigualdade e desagr
 
 A *ALIANÇA* tem a ambição de erradicar a pobreza. Mas é precisa a ajuda de todos, instituições públicas e privadas, entidades do terceiro setor, a Igreja Católica ou instituições de outras confissões religiosas, empresas e cidadãos, para nos ajudarmos mutuamente neste desígnio, que só ocorrerá, sustentadamente, quando a nossa economia crescer e a competitividade melhorar.
 
-O primeiro dos 17 Objetivos do Desenvolvimento Sustentável (ODS), fixados pela ONU em 2015 e que fazem parte da Agenda 2030 para o Desenvolvimento Sustentável é a erradicação da pobreza. Este combate que reclama cada vez mais o envolvimento da sociedade civil, deve procurar assegurar que todos independentemente do seu lugar e condição, tenham garantidos direitos como alojamento adequado, alimentação, água potável, saneamento básico, saúde, trabalho, segurança social ou educação. 
+O primeiro dos 17 Objetivos do Desenvolvimento Sustentável (ODS), fixados pela ONU em 2015 e que fazem parte da Agenda 2030 para o Desenvolvimento Sustentável é a erradicação da pobreza. Este combate que reclama cada vez mais o envolvimento da sociedade civil, deve procurar assegurar que todos independentemente do seu lugar e condição, tenham garantidos direitos como alojamento adequado, alimentação, água potável, saneamento básico, saúde, trabalho, segurança social ou educação.
 
-Nesse caminho da defesa das pessoas e do combate às desigualdades, a *ALIANÇA*  acredita que é possível melhorar as políticas de inclusão social, tornando-as mais  eficazes, na proteção dos direitos sociais e no acesso a bens e serviços essenciais, a  todos. Não aceitamos listas de espera na segurança social, especialmente para pessoas  portadoras de deficiência/ e ou em situações dependência, que aguardam meses, senão  anos, para lhes serem atribuídos os apoios sociais que lhes são devidos e que são  essenciais para viverem com o mínimo de qualidade e dignidade. Não aceitamos que as  crianças e os jovens não tenham direito a habitação condigna, acesso a uma educação  que aposte na sua inclusão e desenvolvimento pessoal, através da prática do desporto e  do acesso às artes, à saúde e a uma alimentação saudável, que lhes permita terem vidas  sãs e felizes. Não aceitamos atrasos no pagamento das pensões. Não aceitamos  qualquer tipo de exclusão, violência doméstica e/ou de género. Todos devemos ter  igualdade de acesso a oportunidades. O Estado não pode falhar onde é mais preciso: às  Pessoas. 
+Nesse caminho da defesa das pessoas e do combate às desigualdades, a *ALIANÇA*  acredita que é possível melhorar as políticas de inclusão social, tornando-as mais  eficazes, na proteção dos direitos sociais e no acesso a bens e serviços essenciais, a  todos. Não aceitamos listas de espera na segurança social, especialmente para pessoas  portadoras de deficiência/ e ou em situações dependência, que aguardam meses, senão  anos, para lhes serem atribuídos os apoios sociais que lhes são devidos e que são  essenciais para viverem com o mínimo de qualidade e dignidade. Não aceitamos que as  crianças e os jovens não tenham direito a habitação condigna, acesso a uma educação  que aposte na sua inclusão e desenvolvimento pessoal, através da prática do desporto e  do acesso às artes, à saúde e a uma alimentação saudável, que lhes permita terem vidas  sãs e felizes. Não aceitamos atrasos no pagamento das pensões. Não aceitamos  qualquer tipo de exclusão, violência doméstica e/ou de género. Todos devemos ter  igualdade de acesso a oportunidades. O Estado não pode falhar onde é mais preciso: às  Pessoas.
 
 Propomos o seguinte:
 
 + Impor o Primado da Pessoa como causa transversal e primordial de todas as áreas da Governação, assegurando a dignidade, a liberdade e os direitos constitucionalmente garantidos como a base essencial da vivência de qualquer ser humano, que deve prevalecer sobre qualquer outra.
-
 
 + Garantir igualdade de direitos e oportunidades para todos, independentemente da raça, etnia, género, opção sexual, religião, bem como o acesso a habitação, alimentação, água potável, saúde, trabalho, segurança social, educação e justiça, combatendo severamente todos os fenómenos e ações de exclusão social, de violência doméstica, de género ou qualquer outra.
 
@@ -1089,7 +1041,6 @@ Propomos o seguinte:
 + Garantir o acesso à habitação das pessoas que, por questões de mercado, deixaram de ter rendimentos compatíveis com o aumento das rendas e do preço de venda de imóveis, promovendo uma oferta alargada de respostas privadas e públicas, através da disponibilização de mais fogos a preços acessíveis e da concessão de apoios, como o subsídio de renda.
 
 + Empreender, em conjunto com o Poder Local, o combate sem tréguas a guetos e flagelos socias, designadamente bairros e construções clandestinas que potenciam a exclusão social, e a marginalização dos residentes e criando focos de instabilidade social indesejáveis.
-
 
 + Criar uma Rede Nacional de residências para apoio às pessoas portadoras de adeficiência, em estreita colaboração com as autarquias e o terceiro setor, em regime aresidencial ou de apoio de dia, consoante as necessidades, desagravando o esforço aque recai sobre as Famílias que por vezes são forçadas a deixar o seu trabalho e com aa permanente incerteza e angústia de não saber como proteger os seus.
 
@@ -1150,7 +1101,6 @@ Estes números são só por si suficientes para justificar a adoção de uma pol
 
 ### EDUCAÇÃO E O ENSINO SUPERIOR
 
-
 A Educação é um pilar fundacional de qualquer sociedade. Através da educação concretiza-se a transferência de conhecimentos e instrumentos culturais de geração em geração, sendo este processo determinante para a afirmação da matriz cultural e civilizacional de um povo.
 
 No atual contexto competitivo e de aposta na formação de qualidade, exige-se a edificação de um sistema educativo que promova a igualdade de oportunidades e valorize o capital humano da Nação. Exige-se um sistema assente no mérito, no trabalho, na disciplina e na procura constante da excelência. Um sistema promotor da individualidade no contexto do interesse comum da comunidade e da sociedade Portuguesa.
@@ -1185,7 +1135,6 @@ Neste contexto a *ALIANÇA* defende o seguinte conjunto de medidas Políticas pa
 
 + Propõe-se uma revisão profunda no modelo dos manuais escolares, substituindo asempre que possível os manuais em formato de papel por soluções digitais proporcionadas pelo Estado para todos.
 
-
 + A *ALIANÇA* defende o conceito de discriminação positiva no que diz respeito ao apagamento das propinas. O Estado deverá garantir, através de mecanismos de apoio, aque nenhum estudante abandona o Ensino Superior devido a dificuldades económica.
 
 + Portugal deve aprofundar a sua participação no espaço europeu de ensino superior, procurando modernizar e internacionalizar toda a rede de ensino universitário e politécnico.
@@ -1201,7 +1150,6 @@ Neste contexto a *ALIANÇA* defende o seguinte conjunto de medidas Políticas pa
 + Aumentar a Internacionalização do Ensino Superior, tirando partido do seu prestígio, captando mais estudantes estrangeiros e da Diáspora, aproveitando o conhecimento através de sinergias com outras instituições de ensino nacionais e estrangeiras.
 
 + Dotar o ensino superior de um modelo de financiamento estável, que permita o desenvolvimento de estratégias de longo prazo, que tenha em consideração variáveis diversas tais como, qualidade, impacto na estratégia nacional e coesão territorial.
-
 
 ### INOVAÇÃO E INVESTIGAÇÃO
 
@@ -1235,7 +1183,7 @@ A *ALIANÇA* acredita na criatividade e no talento intrínseco, dos Portugueses,
 
 + Criar condições facilitadoras para aumento do investimento nas áreas da Inovação, Investigação e Desenvolvimento, com a ambição de 3,5 % até 2025, contando com o esforço conjunto do setor empresarial e do setor público designadamente em áreas estratégicas e prioritárias como seja a saúde, o medicamento, o mar o ambiente e a energia, entre outras.
 
-+ Rever a organização e funcionamento das unidades de investigação e os laboratórios do Estado, tornando-os mais colaborativos e assegurando a utilidade prática dos seus programas e linhas de investigação permitindo que a concertação das suas atividades proporcione economias de escala pela partilha de custos de estrutura e eliminando eventuais duplicações nas respetivas atividades. 
++ Rever a organização e funcionamento das unidades de investigação e os laboratórios do Estado, tornando-os mais colaborativos e assegurando a utilidade prática dos seus programas e linhas de investigação permitindo que a concertação das suas atividades proporcione economias de escala pela partilha de custos de estrutura e eliminando eventuais duplicações nas respetivas atividades.
 
 + Promover a interligação e parcerias entre as Instituições Públicas e Privadas, maximizar o valor criado, através duma melhor definição do seu escopo de trabalho, promovendo a especialização e complementaridade ao invés de concorrência que é adversa às sinergias que o setor pode proporcionar.
 
@@ -1244,7 +1192,6 @@ A *ALIANÇA* acredita na criatividade e no talento intrínseco, dos Portugueses,
 + Incentivar a investigação realizada nas empresas e por todos os agentes e setores produtivos, em estreita colaboração com as universidades e com os centros de conhecimento, promovendo a criação de departamentos de inovação empresarial e industrial, garantindo a capacidade de criação de novos produtos e serviços e, consequentemente, a melhoria da sua produtividade e capacidade exportadora.
 
 + Agilizar e simplificar os processos de licenciamento de propriedade Intelectual e Industrial, de marcas, invenções, tecnologia, patentes e inovações industriais, garantindo a retenção do valor acrescentado criado no País.
-
 
 ### A CULTURA E AS ARTES
 
@@ -1278,7 +1225,6 @@ Acreditamos numa Política Cultural que tem como primeiro objetivo “a promoç�
 
 + A *ALIANÇA* acredita que uma boa política de cultura tem que ser descomplicada, descomplexada, e agregadora de todos os agentes de cultura, independentemente de serem, ou não, apoiados pelo Estado. À semelhança do investimento produtivo, a Cultura pode e deve contar com investidores e patrocinadores nacionais e estrangeiros sem complexos e sem receios.
 
-
 ### PATRIMÓNIO NACIONAL
 
 Portugal detém um Património material e imaterial de riqueza incalculável, presente em todas as geografias, em que marcou a história do Mundo. No Oriente, em África na América, e durante estes 900 anos de história por onde passaram, os Portugueses deixaram marca.
@@ -1310,7 +1256,6 @@ do Estado dando-lhe novos usos.
 do património histórico e consolidação de iniciativas e focos culturais, contribuindo em
 simultâneo para atenuar as diferenças regionais valorizando o interior.
 
-
 ### COMUNICAÇÃO SOCIAL
 
 A *ALIANÇA* é um partido novo e por isso muito atento às novas e modernas tecnologias, complementares dos meios de comunicação, que permitem criar elos de ligação permanente com todos os Portugueses.
@@ -1320,7 +1265,6 @@ A *ALIANÇA* baseia a sua ação numa política de proximidade, que garanta o en
 As mudanças na cadeia de valor da indústria de televisão, os media e os conteúdos, os novos desafios, o futuro da imprensa e da rádio ou o recurso às novas plataformas tecnológicas fazem inequivocamente parte de uma ponderação séria que a *ALIANÇA* defende dever ser realizada por especialistas e responsáveis públicos e privados, em conjunto com a sociedade civil.  Esta constatação tem claros reflexos na sociedade e no mercado, ou seja, nos mecanismos de procura e de oferta. A *ALIANÇA* pauta-se, neste domínio, por uma atenção à Mudança, tendo em consideração o novo contexto tecnológico e financeiro dos diversos operadores e do mercado, sem quaisquer derivas intervencionistas ou “iluminadas” que tão maus resultados produziram sempre que foram tentadas.
 
 A *ALIANÇA* concebe o Portugal democrático e europeu do século XXI como uma nação capaz de lutar por uma sociedade mais cosmopolita, coesa e solidária, liberta de tentações periféricas ou de marginalidade relativamente aos centros de prosperidade e de progresso do mundo globalizado. O papel da comunicação social para alcançar este feito é determinante, numa postura que implica uma total isenção e imparcialidade face ao poder político.
-
 
 A evolução das diversas instâncias de escrutínio público, que vão desde os media convencionais até aos blogues e às redes sociais, obrigam a uma mudança de atitude. Esse é o verdadeiro desafio nas políticas públicas e privadas de comunicação social. A *ALIANÇA* quer uma sociedade Portuguesa mais exigente e mais crítica, e a liberdade de expressão, de pensamento e de opinião enquanto vertentes fundamentais da realização da pessoa humana, são garantes de democracia liberal e duma sociedade aberta e por isso apresenta as seguintes propostas:
 
@@ -1333,7 +1277,6 @@ A evolução das diversas instâncias de escrutínio público, que vão desde os
 + Um Serviço Público que não queira fazer concorrência aos operadores privados e que cumpra as suas obrigações no esclarecimento e formação dos Cidadãos.
 
 + A aposta na qualidade e na relação custo/benefício dos produtos oferecidos deve ser realizada tendo em atenção o mercado, mas também a especificidade do serviço público e o desenvolvimento da sociedade.
-
 
 + O Estado deve garantir, de forma inequívoca, uma concorrência transparente e, sobretudo, o acesso de todos os Cidadãos aos conteúdos, incluindo a informação, seja qual for a plataforma tecnológica utilizada.
 
@@ -1379,7 +1322,6 @@ Para garantir uma maior representatividade de todo o território nos órgãos de
 
 O desenvolvimento do País está diretamente associado ao grau de estabilidade dos executivos. Ao longo dos 45 anos de Democracia o País apresentou uma instabilidade
 
-
 significativa, o que impediu o cumprimento integral dos mandatos. Urge contribuir para um quadro de normalidade na vida política e de criação de um ambiente propício à adoção de políticas públicas de médio/longo prazo. Uma verdadeira política de compromissos para alavancar o desenvolvimento de Portugal.
 
 O modelo de governos de coligação é habitual em toda a Europa, exige-se, por isso, que os Partidos estejam à altura dessas responsabilidades, contribuindo para a adoção de uma política de consensos, para além do período das legislaturas. A estabilidade deve ser assegurada em todos os domínios de funcionamento da sociedade, pelo que devem ser realizados esforços no sentido de ampliar os acordos no âmbito da concertação social.
@@ -1412,7 +1354,6 @@ Na linha da nossa Declaração de Princípios e dos Valores que orientam a nossa
 
 + Reforço das plataformas de comunicação entre eleitos e eleitores, fomentando uma maior participação dos cidadãos na vida política.
 
-
 Portugal precisa de um sistema político moderno, flexível e adaptável aos desafios da a contemporaneidade. A *ALIANÇA* assume o compromisso de liderar o debate em torno a da reforma do sistema político e eleitoral. a Mais Cidadania, Melhor Democracia!
 
 ### MELHOR ESTADO
@@ -1424,7 +1365,6 @@ O grau de confiança dos cidadãos no Estado, nos diversos órgãos e representa
 A ação do Estado deve ser pautada por dois vetores fundamentais: estabilidade e transparência. Estabilidade ao nível das políticas públicas adotadas e transparência em todos os procedimentos administrativos, fiscais e políticos, nomeadamente ao nível dos procedimentos concursais para a administração pública, dos procedimentos concursais para obras públicas e na relação do Estado com o cidadão. Estes vetores são fundamentais, tanto para os milhares de funcionários públicos, como para todos os cidadãos, conscientes que a posição do Estado deve ser colaborativa e de desbloqueio, ao invés de dificultar o acesso aos serviços públicos.
 
 A presença do Estado na sociedade é fundamental, no entanto, o seu papel é garantir a efetiva regulação das diversas atividades, de modo a garantir que o interesse público é assegurado, evitando custos incomportáveis para os cofres públicos de decisões na órbita do Estado. O poder da regulação permite, precisamente, atenuar esses riscos. Os
-
 
 Portugueses não podem continuar a pagar por decisões irresponsáveis e que condicionem o direito das gerações atuais e vindouras a um futuro mais próspero.
 
@@ -1438,7 +1378,6 @@ Por respeito a todos aqueles que vivem do seu trabalho, que cumprem as suas obri
 
 A afirmação de um Estado mais transparente e ao serviço dos cidadãos exige, igualmente, um combate sem tréguas à corrupção, que constitui um dos maiores entraves à qualidade da Democracia e uma das principais causas para a descrença e a desconfiança generalizada nas instituições públicas. A moralização e qualificação do
 
-
 sistema político implica a adoção de um conjunto de medidas que visem contrariar um ambiente de impunidade na sociedade Portuguesa. Nesse sentido, a *ALIANÇA* defende a proibição do exercício de cargos públicos para quem for condenado por corrupção, num claro sinal da necessidade de restabelecer a total confiança nos decisores políticos. Sendo a corrupção um dos crimes que mais afetam a reputação do País, que maior influência tem no grau de confiança dos cidadãos e que constitui uma barreira efetiva ao crescimento e ao desenvolvimento, a *ALIANÇA* defende o endurecimento das penas associadas a este crime.
 
 O caminho de combate à corrupção deve, igualmente, ser efetuado com um controlo mais exigente da aplicação dos fundos comunitários, garantindo que os mesmos são utilizados ao serviço da comunidade e do interesse público. Portugal tem de conseguir fazer respeitar a sua cultura, a prática dos bons valores e da ética, características da sua identidade, para reconquistar a reputação e prestígio de Portugal no Mundo.
@@ -1450,7 +1389,6 @@ Este combate deve ser transversal e partilhado por toda a sociedade, com o objet
 #### ÁREAS ESTRATÉGICAS DA SOBERANIA NACIONAL REQUERENDO UM PERMANENTE ACOMPANHAMENTO E ADAPTAÇÃO FACE A CONJUNTURA EUROPEIA E INTERNACIONAL
 
 Portugal está livre de ameaças existenciais. As potenciais ameaças que Portugal enfrenta não colocam em causa a sua soberania, o seu território, nem mesmo a sua liberdade de ação política, e só justificam o empenhamento da força militar em fronteiras distantes, em conjunto com outros Estados, no quadro da OTAN (NATO), da União Europeia (UE) e da Organização das Nações Unidas (ONU), no sentido de que determinadas ameaças não cheguem perto.
-
 
 O emprego da força militar em fronteiras distantes, no quadro de *ALIANÇA*s, e a defesa perante eventuais ameaças no futuro, são as razões que justificam manter as Forças Armadas (FA). São um “seguro” que demora a edificar, ou a tornar eficaz. Esta situação permite que os recursos atribuídos às Forças Armadas sejam os mínimos que permitam manter as ameaças longe, explorando a divisão do trabalho estratégico e operacional entre aliados e a edificação rápida de dispositivos de defesa face a ameaças existenciais. As FA têm a posse das armas mais poderosas da Nação e do Estado e, num Estado de Direito Democrático, só podem fazer uso das suas capacidades por decisão dos órgãos de soberania, nos termos da Constituição e da lei, no respeito da vontade do poder soberano, o povo; é isto a supremacia civil constitucionalmente consagrada, que condiciona o exercício de diversos direitos e liberdades dos militares.
 
@@ -1476,7 +1414,6 @@ Neste quadro a *ALIANÇA* aponta, entre outras, as seguintes medidas:
 
 + Incremento da utilização de modernos sistemas de tecnologia avançada de vigilância marítima e aérea, da Zona Económica Exclusiva de Portugal e dos restantes espaços marítimos por intermédio de UAV (drones).
 
-
 + Um novo Modelo Organizacional das Forças e Serviços de Segurança no âmbito terrestre, complementar das propostas em sede de segurança nos espaços marítimos, assente na racionalização das estruturas atualmente duplicadas na PSP, na GNR e no SEF e no sentido do aumento substancial de patrulhas e giros de policiamento em todo o território continental e regiões autónomas, libertando elementos para reforço da atividade operacional e que conduza à mitigação das situações de “rivalidade” e discriminação pela delimitação na atuação territorial, sendo o mesmo complementado por um novo enquadramento e redefinição de competências dos Serviços de Informações.
 
 ### FINANÇAS E ADMINISTRAÇÃO PÚBLICA
@@ -1501,7 +1438,6 @@ Para esse fim é essencial reduzir rácio da divida pública sobre o PIB por via
 
 Defendemos a “reinvenção do Estado” procurando estabelecer *ALIANÇA*s políticas de amplo consenso que determine quais os setores estratégicos que justificam (ou não) a presença direta do Estado.
 
-
 Existe um conservadorismo vigente relativamente a esta matéria, talvez por complexos do passado, lamentavelmente, confundimos o absolutamente desnecessário autoritarismo com a essencial autoridade do Estado.
 
 Essa autoridade tem de estar fundamentada numa relação de confiança entre o Estado e as Pessoas, essa relação não pode estar confinada a uma declaração fiscal por contrapartida de um conjunto de serviços públicos que por vezes funcionam, outras vezes não.
@@ -1518,7 +1454,6 @@ Neste contexto a *ALIANÇA* defende as seguintes medidas políticas:
 
 + Por um lado, fazer um levantamento exaustivo de comissões, institutos, direções, e entidades no âmbito do SEE e dos organismos desconcentrados da Administração Central, que possam ter missões concorrentes e sobreposições de objeto, incorrendo em custos que não trazem valor acrescido, procedendo a sua fusão ou eliminação.
 
-
 + A necessidade de limitar a utilização do OE como veículo de alterações fiscais e estabelecer um prazo longo de estabilidade fiscal o qual requer 2/3 dos votos da Assembleia da República para que seja alterado.
 
 + Um grande foco na simplificação de todo o sistema fiscal e a criação de uma conta corrente do contribuinte onde se indique qual o montante de impostos, taxas e multas cobradas e onde foi aplicado.
@@ -1532,7 +1467,6 @@ Neste contexto a *ALIANÇA* defende as seguintes medidas políticas:
 + Eliminar atos e procedimentos inúteis e sobreposições de competências injustificadas entre várias entidades públicas, o que representa mais do que um desperdício de meios e recursos, um adicional de complexidade e ineficácia.
 
 + Em sequência proceder a uma reorganização dos serviços da administração direta, indireta e setor empresarial do Estado e informatizar amplamente os processos e procedimentos contribuindo no futuro para a desmaterialização e a descentralização de serviços.
-
 
 + Promover a harmonização de processos e procedimentos autárquicos de licenciamento de forma a garantir a uniformização e a simplificação de processos no todo nacional.
 
@@ -1568,7 +1502,6 @@ A *ALIANÇA* defende a desmaterialização total da Justiça, adotando um modelo
 
 Defendemos o reforço da utilização dos meios alternativos de resolução de litígios, mantendo-se, no entanto, a competência dos Tribunais para a fiscalização da legalização das decisões. A implementação da arbitragem no âmbito dos conflitos individuais de trabalho representa um dos exemplos da simplificação e da agilização dos processos judiciais.
 
-
 A evolução tecnológica deve permitir a generalização da realização de inquirições de testemunhas com recursos a meios telemáticos simplificados. De igual modo, devem ser permitidos testemunhos escritos, assegurando uma melhor preparação da audiência de julgamento e uma redução da duração da mesma.
 
 A *ALIANÇA* defende a revisão das garantias e Justiça Tributária, permitindo o alargamento da figura do “Gestor do Contribuinte”, a revisão do Regime Jurídico da Arbitragem Tributária e criando juízos de “pequena instância tributária”, para julgar litígios referentes a contraordenações, execuções fiscais e outras matérias de menor complexidade. Estes contributos são alguns dos exemplos de uma política voltada para a simplificação e agilização da Justiça.
@@ -1579,10 +1512,9 @@ Um dos pilares de qualquer sociedade democrática é a separação de poderes. A
 
 A *ALIANÇA* defende um modelo de reforma que garanta uma sociedade alicerçada nos princípios e valores da Justiça.
 
+### POLÍTICA EXTERNA E ASSUNTOS EUROPEUS
 
-### POLÍTICA EXTERNA E ASSUNTOS EUROPEUS  
-
-#### UMA FORTE DETERMINAÇÃO NA DEFESA DO PROJETO EUROPEU E NO REFORÇO DA AFIRMAÇÃO DE PORTUGAL NO MUNDO  
+#### UMA FORTE DETERMINAÇÃO NA DEFESA DO PROJETO EUROPEU E NO REFORÇO DA AFIRMAÇÃO DE PORTUGAL NO MUNDO
 Portugal assume, na sua política externa, uma matriz Europeia e Atlântica. A afirmação de Portugal na Europa e no Mundo corresponde a um desafio aglutinador, através da promoção da língua portuguesa e da presença cultural e empresarial do país nos diversos pontos do globo.
 
 A política externa define-se com base na história, nos interesses nacionais, no posicionamento geoestratégico, na situação política, económica e social do país, no sistema de alianças e na gestão da conjuntura internacional. A ação dos nossos representantes, na defesa dos interesses nacionais, deve pautar-se pelo amor à Pátria. Portugal assume a sua identidade europeia, defendendo e promovendo um projeto europeu assente na coesão económica e social e no respeito pelas soberanias e identidades nacionais.

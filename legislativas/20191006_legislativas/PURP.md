@@ -30,7 +30,7 @@ Ninguém nos calará na defesa intransigente dos princípios de equidade, se est
 
 * Acabar de vez, com subsídios de presença/assiduidade na AR dos Deputados. Uma vergonha, porque, que se saiba, os colaboradores das Empresas Privadas, e até os restantes funcionários públicos na generalidade, não usufruem dessa regalia e, mesmo que a tivessem, não são dinheiros públicos???
 
-* Acabar de vez, com a vergonha dos subsídios de deslocação dos Deputados, tendo em conta, que na sua maioria, os funcionários públicos não têm direito a esses suplementos, para não falar dos trabalhadores privados. Exige-se equidade. 
+* Acabar de vez, com a vergonha dos subsídios de deslocação dos Deputados, tendo em conta, que na sua maioria, os funcionários públicos não têm direito a esses suplementos, para não falar dos trabalhadores privados. Exige-se equidade.
 
 * Acabar de vez, com os 230 Deputados e reduzi-los para 180 numa primeira fase e, posteriormente para 150. Somos um País de 10 milhões de Cidadãos, onde comparativamente com outros Países, cujas populações são 3/4 vezes superiores, integram em proporção muitos menos Deputados (somos ricos, não é’).
 
