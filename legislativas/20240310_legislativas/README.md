@@ -31,7 +31,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 
 Para cada tipo de acto eleitorial há uma pasta na raiz do repositório: "legislativas", "autárquicas", "presidenciais" e "europeias". Para já ainda só foram coletados programas de eleições legislativas, portanto só a pasta correspondente existe ainda. Dentro de cada uma destas pastas por tipo de acto eleitoral, existe uma outra pasta para cada eleição específica, e dentro dessa um ficheiro `README.md` com mais detalhe. É sobre esse README que estas instruções se aplicam.
 
-**Adicionar um link em falta**
+### Adicionar um link em falta para o documento original de um programa
 
 1. Confirmar que o programa é o programa eleitoral e não o programa político (no caso de existirem os dois). Estamos interessados nas propostas para as eleições, por isso será quase sempre o programa eleitoral o documento de referência certo.
 2. Fazer um pull-request para alterar o conteúdo do README com o novo link.
