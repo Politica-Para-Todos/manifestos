@@ -29,7 +29,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 
 ## Instruções
 
-Para cada acto eleitorial há uma pasta: legislativas, autárquicas, presidenciais e europeias. Para já ainda só foram coletados programas de legislativas. Dentro de cada acto eleitoral existe uma outra pasta para cada eleição e aí um README com mais detalhe, é sobre esse README que estas instruções se aplicam.
+Para cada tipo de acto eleitorial há uma pasta na raiz do repositório: "legislativas", "autárquicas", "presidenciais" e "europeias". Para já ainda só foram coletados programas de eleições legislativas, portanto só a pasta correspondente existe ainda. Dentro de cada uma destas pastas por tipo de acto eleitoral, existe uma outra pasta para cada eleição específica, e dentro dessa um ficheiro `README.md` com mais detalhe. É sobre esse README que estas instruções se aplicam.
 
 **Adicionar um link em falta**
 
