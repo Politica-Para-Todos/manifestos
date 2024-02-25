@@ -41,7 +41,7 @@ Para cada tipo de acto eleitorial há uma pasta na raiz do repositório: "legisl
 * Fazer um pull-request para alterar o conteúdo do README com o vosso nome na coluna responsável e "NÃO TERMINADO" na coluna estado, para sabermos quem está a trabalhar em qual programa.
 * Abrir o programa eleitoral disponível no link apresentado na tabela do README em frente ao nome do partido e copiar o conteúdo para um ficheiro Markdown.
 * Usamos a notação Markdown para marcar títulos (vários níveis), listas e sub-listas. Para referência da sintaxe, guiamo-nos por este [Markdown Cheatsheet](https://github.com/adam-p/markdown-here/wiki/Markdown-Cheatsheet)
-* Cada parágrafo do programa eleitoral deve aparecer como 1 só linha no Markdown. Deixamos uma linha livre entre cada parágrafo.
+* Cada parágrafo do programa eleitoral deve aparecer como 1 só linha no Markdown. Ou seja, usamos soft-wrap e não hard-wrap de parágrafos. Deixamos uma linha livre entre cada parágrafo.
 * Na dúvida, ver alguns dos exemplos já concluídos.
 * Quando a conversão estiver completa, fazer um pull-request com o ficheiro. O nome deve ser a sigla do partido + a data de acesso ao programa.
 
