@@ -17,7 +17,7 @@ A disponibilização dos programas num formato standard permitirá também que s
 | Ergue-te | [Fev 2024](https://drive.google.com/file/d/1GKUP87zt-6LoQ8vpmjKInPnFtGCIQ9Fq/view?usp=drive_link) |  |  |
 | Iniciativa Liberal | [Fev 2024](https://drive.google.com/file/d/14ak-oNVmaPSfRmC9on7BEK5FXjqtMa6Q/view?usp=drive_link)  |  |  |
 | Juntos pelo Povo | Programa não encontrado  |  |  |
-| LIVRE | [Fev 2024](https://drive.google.com/file/d/1LIEdU4qjSqvl_EUJcOtwt55bK0kCPjAi/view?usp=drive_link) ||  |
+| LIVRE | [Fev 2024](https://drive.google.com/file/d/1LIEdU4qjSqvl_EUJcOtwt55bK0kCPjAi/view?usp=drive_link) | Waldir P. | NÃO TERMINADO |
 | Movimento Alternativa Socialista | Programa não encontrado |  |  |
 | NOVA DIREITA | [Fev 2024](https://drive.google.com/file/d/1wdtQulXVslAwyKMbxMfCEzz0uULa9RFq/view?usp=drive_link)  | |  |
 | Partido Comunista dos Trabalhadores Portugueses | Programa não encontrado |  | |
