@@ -16,14 +16,13 @@ A disponibilização dos programas num formato standard permitirá também que s
 | CHEGA | [Fev 2024](https://drive.google.com/file/d/1iaSFszm_8M3dhU2Zf7P2GIsVEfgvMAnU/view?usp=drive_link) | |  |
 | Ergue-te | [Fev 2024](https://drive.google.com/file/d/1GKUP87zt-6LoQ8vpmjKInPnFtGCIQ9Fq/view?usp=drive_link) |  |  |
 | Iniciativa Liberal | [Fev 2024](https://drive.google.com/file/d/14ak-oNVmaPSfRmC9on7BEK5FXjqtMa6Q/view?usp=drive_link)  |  |  |
-| Juntos pelo Povo | Programa não encontrado  |  |  |
 | LIVRE | [Fev 2024](https://drive.google.com/file/d/1LIEdU4qjSqvl_EUJcOtwt55bK0kCPjAi/view?usp=drive_link) | Waldir P. | NÃO TERMINADO |
 | Movimento Alternativa Socialista | Programa não encontrado |  |  |
 | NOVA DIREITA | [Fev 2024](https://drive.google.com/file/d/1wdtQulXVslAwyKMbxMfCEzz0uULa9RFq/view?usp=drive_link)  | |  |
 | Partido Comunista dos Trabalhadores Portugueses | Programa não encontrado |  | |
 | Partido Socialista | [Fev 2024](https://drive.google.com/file/d/1K_tRwTJRF2SaC2WgQeIq40Ry7Yvnrct3/view?usp=drive_link)  | |  |
 | Partido Trabalhista Português  | Programa não encontrado  |    | |
-| PESSOAS - ANIMAIS - NATUREZA | [Fev 2024](https://drive.google.com/file/d/11f5kNLpPkkOHymj2lgaXgf088KF61wq5/view?usp=drive_link) |  |  |
+| PESSOAS - ANIMAIS - NATUREZA | [Fev 2024](https://drive.google.com/file/d/11f5kNLpPkkOHymj2lgaXgf088KF61wq5/view?usp=drive_link) | Renata H. | NÃO TERMINADO |
 | Reagir Incluir Reciclar | [Fev 2024](https://drive.google.com/file/d/1XXnzy1Zl9DaBBTtKn-ObuDX1WTRJTuwl/view?usp=drive_link) | Nuno C. | NÃO TERMINADO |
 | Volt Portugal | [Fev 2024](https://drive.google.com/file/d/14P775JPD4B-HxjFklN8Zxw4LWc8L5g56/view?usp=drive_link)  |  |  |
 
