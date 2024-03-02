@@ -8,12 +8,12 @@ A disponibilização dos programas num formato standard permitirá também que s
 
 Para cada acto eleitorial há uma pasta: legislativas, autárquicas, presidenciais e europeias. Para já ainda só foram coletados programas de legislativas. Dentro de cada acto eleitoral existe uma outra pasta para cada eleição e aí um README com mais detalhe, é sobre esse README que estas instruções se aplicam.
 
-**Adicionar um link em falta**
+### Adicionar um link em falta
 
 1. Confirmar que o programa é o programa eleitoral e não o programa político (no caso de existirem os dois). Estamos interessados nas propostas para as eleições, por isso será quase sempre o programa eleitoral o documento de referência certo.
 2. Fazer um pull-request para alterar o conteúdo do README com o novo link.
 
-**Converter um programa para Markdown**
+### Converter um programa para Markdown
 
 * Fazer um pull-request para alterar o conteúdo do README com o vosso nome na coluna responsável e "NÃO TERMINADO" na coluna estado, para sabermos quem está a trabalhar em qual programa.
 * Abrir o programa eleitoral disponível no link apresentado na tabela do README em frente ao nome do partido e copiar o conteúdo para um ficheiro Markdown.
